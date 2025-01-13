@@ -9,3 +9,9 @@ The paradoxical plight of the average outcaste is beautifully captured in certai
 Some other incidents, such as Gandhi's impractical ideas on caste eradication and his opposition to the separate electorate are strewn into the story. The subsequent discussion between a poet and a western-educated "intellectual" throws up some interesting highlights.
 
 At many junctures in the story, the sheer audacity and sense of entitlement exhibited by the so-called upper castes in the society are just terrible. Unfortunately, the depressing part is that this is still the bitter reality of everyday life for many outcastes.
+
+
+
+---
+---
+*Disclaimer: The content shared on this blog, including quotes and highlights from books, is intended for educational and informational purposes only. All rights to the original works are retained by the respective copyright holders. This blog does not claim ownership of any copyrighted material. If you are the copyright owner and believe that any content posted here infringes upon your rights, please contact us, and we will promptly remove the material in question.*
