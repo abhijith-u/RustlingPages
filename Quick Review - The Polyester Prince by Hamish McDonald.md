@@ -1,7 +1,7 @@
 [The Polyester Prince by Hamish McDonald](https://www.goodreads.com/book/show/265513.The_Polyester_Prince)
 
 
-**The Polyester Prince** by Hamish McDonald is a reportedly "uncensored" account of the rise of Dhirubhai Ambani and Reliance Industries from the 1960s to the 2000s. McDonald traces the growth and eventual domination of Reliance Industries through its bold, but several brazenly corrupt practices which capitulated Reliance to the top of India's industrial pyramid. 
+**The Polyester Prince** by Hamish McDonald is a reportedly "uncensored" account of the rise of Dhirubhai Ambani and Reliance Industries from the 1960s to the 2000s. McDonald traces the growth and eventual domination of Reliance Industries through its bold, but often brazenly corrupt practices which capitulated Reliance to the top of India's industrial pyramid. 
 
 Dhirubhai uses every technique in the crooked capitalist's book to ensure his wild race to the top remains unencumbered. Whether it be blatant corruption, political funding, subverting laws using loopholes, using political and financial arm-twisting to secure bank funds for his ventures, manipulating the Reliance stock prices and its gullible investors, he plows through every barrier in his path using the double barrels of capital and political influence.
 
