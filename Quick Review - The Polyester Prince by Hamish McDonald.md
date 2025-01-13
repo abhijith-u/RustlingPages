@@ -16,3 +16,9 @@ Also discussed are Dhirubhai's professional/personal vendetta with Bombay Dyeing
 One thing that Dhirubhai almost always succeeds in manipulating well is the average Reliance investor's mindset. The descriptions of his AGMs, the confidence he instills in even the smallest shareholders by playing to the gallery, citing his humble roots and projecting that the people that are against his rise to power are actually jealous of a small-town guy climbing the ladder to challenge industry doyens, all are actually a testament to Dhirubhai's immense skills as one of the best salesmen in business.
 
 Overall, a really interesting book which tries to lay bare the triumphs and casualties in Reliance Industries', and thereby Dhirubhai Ambani's growth to the top. Several instances are eerily similar to the current rise of the Adani Group, whether it be the political support, lax regulation, stock manipulation and several other incidents. The ' Great Indian Growth Story' has conveniently been used to hide the dark underbelly of the Capitalistic beast that is the Indian Industry.
+
+
+
+---
+---
+*Disclaimer: The content shared on this blog, including quotes and highlights from books, is intended for educational and informational purposes only. All rights to the original works are retained by the respective copyright holders. This blog does not claim ownership of any copyrighted material. If you are the copyright owner and believe that any content posted here infringes upon your rights, please contact us, and we will promptly remove the material in question.*
