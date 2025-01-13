@@ -87,6 +87,12 @@
 > Api chetsuduracharo bhajate mamananyabhak
 > Sadhureva sa mantavyah samyagvyavasito hi sah.
 
+
+
+---
+---
+*Disclaimer: The content shared on this blog, including quotes and highlights from books, is intended for educational and informational purposes only. All rights to the original works are retained by the respective copyright holders. This blog does not claim ownership of any copyrighted material. If you are the copyright owner and believe that any content posted here infringes upon your rights, please contact us, and we will promptly remove the material in question.*
+
 	If even a man of very evil conduct turns to Me with a sole and entire love, he must be regarded as a saint, for the settled will of endeavour in him is a right and complete will.
 
 - I can take crores in bribe but if I visit temples and make a large donation, I can consider myself forgiven by God. No wonder, Indian temples are so wealthy with donations by the devout!
