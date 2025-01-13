@@ -59,4 +59,9 @@
 - The Buddha was a free-thinker and democrat he told his disciples not to believe anything merely because it is traditional, but because they themselves have imagined it, to not believe what he teacher tells them merely out of respect for him. Whatsoever, after due examination and analysis, is found to be conducive to the good, for the benefit, the welfare of all beings believe and cling to that doctrine, and take it as your guide. The karma theory which he preached was unabashedly this-worldly, far different from what the Vedic religion trotted out. Buddhism was a great religion if by that term we mean an earnest search for truth. It was not a religion in the conventional sense as the Buddha debunked the very idea of an almighty god. The insistence on a social ethic without religious underpinnings distinguished early Buddhism from formal religions
 - Ambedkar traced the origin of untouchability to the Buddhists' refusal to revere the brahmins and the latter's consequent hatred for the Buddhists. Around 600 BCE, the Vedic religion with its yajnas and other wasteful and exploitative rituals faced a strong challenge from radical kshatriyas in eastern India. The birth of Buddhism and Jainisn had its origin in the disillusionment of the kshatriyas with unproductive brahminism.
 
+
+
+
 ---
+---
+*Disclaimer: The content shared on this blog, including quotes and highlights from books, is intended for educational and informational purposes only. All rights to the original works are retained by the respective copyright holders. This blog does not claim ownership of any copyrighted material. If you are the copyright owner and believe that any content posted here infringes upon your rights, please contact us, and we will promptly remove the material in question.*
