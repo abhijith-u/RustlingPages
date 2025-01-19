@@ -1,16 +1,9 @@
+
 MONSTERS AND MISSIONARIES
----
-For few Europeans had direct experience of the topics they described, with the result that unChristian subjects were pressed into ready-made, more familiar Christian templates. As multi-armed, many-headed Hindu deities were heard of, these too were retrofitted into available medieval categories. Or as Mitter tells, ‘classical monsters and [pagan] gods, Biblical demons and Indian gods were all lumped together’ in one universal master class: that of ‘monsters’.
----
-sprang from a shrine that was dismantled. 44 Received (un)wisdom of this variety was to go a long way in framing India and its culture in the West now.
----
-sati quickly became an essential ingredient in travelogues, down to the British era, with the consequence that a real but hardly national custom, limited to certain classes and places, 60 was identified as a defining feature of Hinduism—a rhetorical handle that in time justified the British Raj’s own quest to ‘civilize’ India.
----
-Additionally, given that such travelogues were sparse in number, each possessed the capital to launch stereotypes.
----
-overzealousness—became the latest staple in travel diaries, its horror inspiring a heap of supposed eyewitness accounts.
----
-a misreading of accidents or occasional overzealousness—became the latest staple in travel diaries, its horror inspiring a heap of supposed eyewitness accounts.
+
+> For few Europeans had direct experience of the topics they described, with the result that unChristian subjects were pressed into ready-made, more familiar Christian templates. As multi-armed, many-headed Hindu deities were heard of, these too were retrofitted into available medieval categories. Or as Mitter tells, ‘classical monsters and [pagan] gods, Biblical demons and Indian gods were all lumped together’ in one universal master class: that of ‘monsters’. Received (un)wisdom of this variety was to go a long way in framing India and its culture in the West now. Sati quickly became an essential ingredient in travelogues, down to the British era, with the consequence that a real but hardly national custom, limited to certain classes and places,  was identified as a defining feature of Hinduism—a rhetorical handle that in time justified the British Raj’s own quest to ‘civilize’ India. Additionally, given that such travelogues were sparse in number, each possessed the capital to launch stereotypes.
+> 
+> Overzealousness—became the latest staple in travel diaries, its horror inspiring a heap of supposed eyewitness accounts.  misreading of accidents or occasional overzealousness—became the latest staple in travel diaries, its horror inspiring a heap of supposed eyewitness accounts.
 ---
 At this time, these processions were associated with unnamed southern shrines, but by the British era, the ritual came specifically to revolve around the temple at Puri in Orissa, inspiring a hundred missionary pamphlets lambasting the savagery of Hindu idolatry.
 ---
@@ -483,5 +476,4 @@ was through British inquiries that Ashoka was recentered not just as one of Indi
 ---
 With religion too, there were advances. H.T.
 ---
-With religion too, there were advances. H.T. Colebrooke (1765–1837)—
-![image](https://github.com/user-attachments/assets/5e440848-bd6e-48f4-8a91-a1f55c6dd9f1)
+
