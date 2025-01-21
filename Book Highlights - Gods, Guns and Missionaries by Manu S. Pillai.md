@@ -63,3 +63,129 @@ For future Hindu nationalists , though, there was cause for worry, nevertheless.
 
 ---
 
+---
+---
+
+Gods, Guns and Missionaries
+Manu S Pillai
+
+in the post-Enlightenment age, Puranic material was about as reliable in knowing the world as Greek mythology.
+
+*****
+
+But worse was the fact that if pandits taught outdated lessons, it was because the British subsidized this.
+
+*****
+
+As early as the 1790s, a Company director thought it ‘folly’ to give brown men’s intellects a modern polish, for armed with fresh ideas around liberty, they might conspire against the British.
+
+*****
+
+Brown men, that is, only needed reminding of the best of their traditional ideas, not a potentially explosive cargo of imported intellectual goods.
+
+*****
+
+Through the first half of the nineteenth century, then, the British oscillated between promoting ‘traditional’ learning and introducing Western ideas, struggling, unlike a Serfoji, to marry the two
+
+*****
+
+as with that word-salad of a textbook, the British architecture for education was also, until the 1850s, a patchwork of indecision.
+
+*****
+
+If on the British side, powerful interests wished to use Sanskrit, impart Western ideas to elites through this medium and leave them to filter down, influential ‘natives’ wanted direct access to English.
+
+*****
+
+While there was some romanticization of English here, the fact is that many ‘natives’ equated mastery over it to progress. Under colonial rule, this was to a degree natural; and Hindus had some experience seizing on new languages anyway, as with Persian under Islamic rule.
+
+*****
+
+Instead of being fed ‘what was known two thousand years ago’, he sought ‘mathematics, natural philosophy, chemistry, anatomy’ and other ‘useful sciences’. These were the subjects that had elevated the ‘nations of Europe’—this is what ‘natives’ must now have.
+--
+Raja Ram Mohun Roy
+
+*****
+
+The orientalists dismissed this as stemming from purely pecuniary motivations. Indians picked up English but without imbibing seriously Western ideas.
+
+*****
+
+Their love of the ruling class’s language was precipitated merely by hopes of employment.
+
+*****
+
+And yet, this was an incomplete picture: As the scholar Parimala Rao shows, most jobs available to Indians did not require English and the higher vacancies that did were barred.
+
+*****
+
+The jibe that English education produced an army of clerks was incorrect; it would generate ‘political leaders, professional men, and intellectuals’—not unlike Serfoji. 231 And most significantly, many did wish to regenerate their country;
+
+*****
+
+And this was addressed directly to the colonial power, in its own mother tongue.
+
+*****
+
+Indeed, if in Calcutta the Company set up a Sanskrit college, the city’s first English college was born of a union of brown intellectuals, businesspersons and dissenting white men.
+
+*****
+
+Popular demand was its own answer.
+
+*****
+
+Macaulay lambasted orientalist peddling of antiquated Sanskrit as sheer irresponsibility.
+
+*****
+
+No, the British must offer fresh ideas, or nava vidya, as Serfoji would have preferred. And for this they needed ‘native’ intermediaries, which, in a sense, was precisely what the Tanjore rajah had also been.
+
+*****
+
+Incidentally, such a class was on the rise—English-speaking ‘natives’, transmitting new-found knowledge via local languages.
+
+*****
+
+Admittedly, these figures were few and scattered (and had their own class and caste biases), 252 but they nonetheless shared a goal: to ‘transfer,’ as the iconic Bengali educator Iswar Chandra Vidyasagar (1820–91) preferred, ‘the philosophy of the West into a native dress’. 253
+
+*****
+
+even as Europe’s technical achievements were conceded, admiration was selective. 259 Accepting the value of Western learning was not tantamount to legitimizing colonial rule. Besides, the whole point of embracing foreign ideas was to revitalize ‘native’ society—and a revitalized society would, it was a given, no longer require foreign superintendence.
+
+*****
+
+With the government reluctant for decades to back elementary education, especially in the vernaculars, missionaries had slid into that space.
+
+*****
+
+Of course, the education they supplied was interlaced with religious propaganda, schools being perceived as ‘evangelistic agencies’.
+
+*****
+
+Missionaries often found that children would memorize lessons, to pass exams. But hopes that they would understand them were disappointed. As a scholar suggests, ‘the [mere] memorizing of texts’ was perhaps ‘an instinctive defence against a body and form of knowledge that looked hostile to everything that was meaningful in the child’s environment’.
+
+*****
+
+Indeed, one critic complained, Hindus mastering ‘European languages, writings, and arts and sciences’ showed a distinct tendency to ‘father them on some of their own ancient sages’
+
+*****
+
+Hindus were using new-found skills to actually ‘defend their religion’.
+
+*****
+
+vigyan, or science, was a different commodity. 275 The two occupied separate compartments, and one could continue to value the Puranas as religious tradition, while accepting contradictory scientific information in other respects.
+
+*****
+
+Ultimately, whether it was with education or Orientalism, the ways in which Hindus responded did not meet their original promoters’ assumptions.
+
+*****
+
+The Renaissance in Europe was catalysed by a renewed interest in ancient Latin and Greek works, not only of a philosophical nature—which generated fresh ways of thinking—but also pertaining to mathematics and science. As Macaulay wrote in his minute, if the British in this time had remained wedded to their Anglo–Saxon literature alone, ignoring a superior store of knowledge that came from these foreign high languages, they could not have progressed. India now, with English, was in the same position.
+
+---
+
+
+
