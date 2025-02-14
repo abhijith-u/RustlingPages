@@ -46,7 +46,7 @@
 
   > Memory being a ziplock bag of leftovers we never intended to eat. We find them in the freezer years later to wonder why we ever though this was worth saving.
 
-
+  > People son't really beliwvw in God... so much as they hope for a witness to their suffering.
 
 ---
 
