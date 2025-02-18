@@ -46,7 +46,11 @@
 
   > Memory being a ziplock bag of leftovers we never intended to eat. We find them in the freezer years later to wonder why we ever though this was worth saving.
 
-  > People son't really beliwvw in God... so much as they hope for a witness to their suffering.
+  > People son't really believe in God... so much as they hope for a witness to their suffering.
+
+
+Born A Crime by Trevor Noah
+> What happened with education in South Africa, with the mission schools and the Bantu schools, offers a neat comparison of the two groups of whites who oppressed us, the British and the Afrikaners. The difference between British racism and Afrikaner racism was that at least the British gave the natives something to aspire to. If they could learn to speak correct English and dress in proper clothes, if they could Anglicize and civilize themselves, one day they might be welcome in society. The Afrikaners never gave us that option. British racism said, “If the monkey can walk like a man and talk like a man, then perhaps he is a man.” Afrikaner racism said, “Why give a book to a monkey?”
 
 ---
 
