@@ -33,9 +33,6 @@
   The historical examples of pluralist state policy involved large polities ruled by enlightened monarchs surrounded by ministers and courtiers drawn from elite circles. None of them were democracies that had to be ruled with the express consent of the people. How could such a history inform state policy in republican India?
 
 - In the first two decades after independence, Nehru and other liberal-minded politicians, bureaucrats, and lawyers put in place the laws and administrative practices of what is known as Nehruvian secularism. Even though the new republic began its journey towards democracy, it was still led by an enlightened elite surrounded by the aura of being the liberators of the nation.
-==========
-
-
 
 By the late 1960s, it became clear that the secular outlook of enlightened pluralists would have to be modified and, some might say, corrupted in order to cope with the pressures of democracy.
 ==========
