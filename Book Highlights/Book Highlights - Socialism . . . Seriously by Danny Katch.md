@@ -277,7 +277,115 @@ Capitalists need the state not just to babysit them but to create the basic cond
 Conservatives are usually the ones arguing for “small government,” and yet they are huge fans of the vast armed wings of the state that make up by far the biggest aspect of government bureaucracy: the military, police, border patrol, and spy agencies. These are the state’s core functions, the repressive apparatus at the heart of every society where some have and others don’t.
 
 
-　
+
+
+
+
+Socialism . . . Seriously: A Brief Guide to Human Liberation
+Danny Katch
+
+Capitalists make up the most powerful class, of course. They have insider access to all levels
+
+*****
+
+When people mention the working class these days, they often simply mean people who don’t have much money. Socialists don’t define workers by what they lack but by the potential power they possess.
+
+*****
+
+This complex division of labor allows relatively small groups of workers to produce or make possible huge productivity and profits—or jeopardize them by going on strike.
+
+*****
+
+The paradox of working-class power is that it originates in how individual workers are powerless.
+
+*****
+
+But it is this individual powerlessness that eventually compels workers to come together and organize collectively
+
+*****
+
+Middle-class people, by contrast, enjoy more individual autonomy than workers, which is why many workers dream of escaping their class and becoming managers or opening up their own businesses. But members of the middle class are pushed around by capitalists just like workers, only without the collective power to resist. The paradox of working-class power applies to the middle class in reverse. The very individualism of the small business owner who “doesn’t have to answer to anybody”
+
+*****
+
+workers—makes the middle class extremely ineffective as a collective body. In times of widespread class struggle, the middle class is like a gang of big toughs squaring off against an army regiment—it’s outmatched in terms of both discipline and firepower.
+
+*****
+
+Because the middle class contains traits of both workers and capitalists, it sees itself as the “everyman” representing all of society—as opposed to the “special interests” of workers (the actual majority of the country) and big capitalists. This is true in the sense that the middle class best represents within itself the class contradictions of capitalism, but that doesn’t help it find a way out of those contradictions. Without the individual power of capitalists or the collective power of workers, the political instinct of the middle class is to call on both sides to stop fighting. Because it can’t produce an alternative to capitalism that really would give everyone an equal voice, its calls for unity end up being window dressing for the status quo, which makes it an excellent breeding ground for politicians.
+
+*****
+
+The working class, by contrast, has the power to back up its words with action, but it only gains this power through a long process of learning how to organize itself.
+
+*****
+
+The group nature of working-class resistance doesn’t just help workers to extract some raises and better conditions from their bosses. It can also, in much more intense moments, point to a possible world without bosses, which makes workers different from many previous exploited classes.
+
+*****
+
+The essence of socialism is that workers can use this collective organization that they have learned under capitalism to create not just cooperative workplaces but a cooperative society geared to meet humanity’s needs instead of a competitive one geared to maximize profit.
+
+*****
+
+Marx came from a middle-class background himself, yet he viewed class conflict not as a neutral observer but as a participant on the side of the workers. Like the utopians, he recognized that the class struggle produced by capitalism is a nasty business. But unlike the middle-class reformers, he understood that the solution was not to wish the struggle out of existence but for the working class to win it and build a more just society.
+
+*****
+
+The simplest definition of Marx’s socialism is that it is what society would look like if the working class were in charge.
+
+*****
+
+the majority class would be in power for the first time in recorded history, which would lead to the gradual dissolving of classes themselves, since a majority can’t live off the exploited labor of a minority. This idea that socialism is defined by the ultimate victory of the working class is Marx’s most important contribution
+
+*****
+
+Solidarity
+
+*****
+
+Just to be clear, we are talking about potential, not describing reality.
+
+*****
+
+Why should we expect working people to be socialists and believe that their class is capable of running society when they are taught the opposite every day of their lives? From childhoods in underfunded schools to adulthoods in underpaid jobs, working-class people are taught to keep their heads down, follow orders, and keep their bright ideas to themselves. Then we turn on the TV to watch CEOs and action heroes celebrated for being free-spirited, rebellious, and every other quality that’s been drummed out of us. This is one of capitalism’s nasty habits: degrading people and then blaming them for their degradation. Black men are the last workers hired and the first ones fired, and then are demonized as deadbeat dads who don’t provide for their children. Girls are vilified for dressing the very way they’ve been told to by a thousand magazine covers. Later they will be blamed by those same magazines for neglecting their families to go to work, even while they are being blamed at work for taking time off for their families.
+
+*****
+
+Just as importantly, these are issues of freedom and dignity, which matter just as much to people as the size of their paycheck. If some workers ignore—or support—the oppressions of other workers, then real unity is impossible.
+Working-class unity is not something to be proclaimed by ignoring racism, xenophobia, and other oppressions within the working class, but something to fight for by combatting them. Some critics of socialism claim that we prioritize class struggle over issues like racism and sexism. In fact, we see them as inseparable.
+
+*****
+
+lovers.”6Socialists aim to win workers to fight against oppression on the basis not of sympathy but of solidarity, the idea that this fight is in our mutual working-class interests
+
+*****
+
+At home on the couch, workers are just as likely as anyone else to buy whatever crappy ideas this society is selling. When they find themselves in a struggle, they make connections between themselves and others facing injustice
+
+*****
+
+We are living through a time when the number of strikes and the size of unions is at a historically low level. Its not just the oppression of the working class that’s hidden—so is its power. So it isn’t surprising that many people looking to fight oppression and injustice find that the idea that the workers will lead the way outdated and naïve.
+
+*****
+
+It’s true that the working class has undergone major changes.
+
+*****
+
+The global working class is bigger than it has ever been. What is often called deindustrialization is really a process in which factory jobs haven’t disappeared but relocated to places without unions in the United States and around the world.
+
+*****
+
+But the decline in the power of workers, like their numbers, is easily exaggerated. Pundits regularly dismiss unions as insignificant relics of the past, until a strike erupts and they freak out about how much chaos it will cause. Even then, they are often incapable of actually listening to the workers they now realize they depend on
+
+*****
+
+But how do we get from this particular present to socialism? How can tens of millions of workers become revolutionary? Through a revolution. That might seem like it gets the chronology wrong. We’re taught to view revolutions as the final step of a plan carried out by radical leaders, when in fact they are the process by which millions of ordinary people become radical leaders
+
+--
+Reading books with ReadEra
+https://readera.org
 
 What conservatives find to be “government tyranny” are those additional services taken on by twentieth-century governments around the world in response to popular demand: caring for the elderly and the sick, monitoring discrimination and the food supply, and so on.
 
