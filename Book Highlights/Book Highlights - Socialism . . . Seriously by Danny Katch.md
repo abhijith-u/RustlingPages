@@ -1,7 +1,35 @@
-Socialism . . . Seriously: A Brief Guide to Human Liberation
-Danny Katch
+### Socialism . . . Seriously: A Brief Guide to Human Liberation by Danny Katch
 
-The whole civilization-as-jungle thing is a bizarre concept. Why did we spend the last ten thousand years discovering fire, painting on cave walls, developing writing, building Rome and Timbuktu, and creating philosophy and astronomy if the whole point was to eventually figure out how to live like we were back in the wild?
+#### 1. Introduction
+　
+- Socialism is a society whose top priority is meeting all of its people’s needs—ranging from food, shelter, and health care to art, culture, and companionship. In contrast, capitalism only cares about any of that basic human necessity stuff to the extent that money can be made off it.
+
+- It is certainly true that neither the “communist” dictators of Russia and China nor the mild “socialist” reformers in Sweden and France succeeded in creating the liberated democratic societies that Marx and Engels described in the Manifesto. We are haunted—whether we know it or not—not only by the future horrors of capitalism but by the past failures of socialism.
+
+- Two simple but far-reaching concepts about socialism:
+  1. Working people control the government.
+  2. The government controls the economy.
+  Number 2 has been the main feature of countries that call themselves socialist or communist, but without Number 1—without democracy at every level of society—state control of the economy has nothing to do with socialism
+
+- Socialists first got a glimpse of this in the 1871 revolution known as the Paris Commune, which created a new form of government in which officials were paid no more than the average worker’s wage and were immediately recallable if voters were unhappy with them. Radical participatory democracy is the heart of the socialist vision.
+
+- Before it lost its socialist character and became a dictatorship, the Russian Revolution was led by democratically elected soviets. These local bodies sprang up in factories, military barracks, and peasant villages across the country to conduct the revolution in their local areas and elect delegates to the regional and national soviet government.
+
+- As with the Paris Commune, delegates to the soviet could be voted out immediately by unhappy voters. Housewives, domestic servants, and other working people who didn’t labor in factories could organize themselves into bodies and gain representation in the soviets. Only employers and police were excluded
+
+- But there is also some truth to conservative fears that all social welfare programs carry within them the dangerous germ of socialism. Not because socialism is about government control but because these programs are evidence that capitalism cannot meet some of society’s most basic needs. Liberalism can agree with socialism that some things about capitalism should be reformed, and socialists often work alongside liberals to win those changes. Where we differ is that liberalism views reforms as ways to preserve capitalism while socialism sees them as steps toward replacing it
+
+- “Communism” and “socialism” used to mean the same thing in most contexts for Marx and that’s how I treat them in this book.
+
+#### 2. Dig Deeper
+　
+- Inequality had been growing for decades—from 1979 the richest one-tenth of the One Percent saw their incomes quadruple while the number of people in poverty grew by fifty million. But that was a slow, mysterious process. In 2008 people saw the same thing happen within a few months, and it was obviously the result of a system that was stacked against us.
+
+- If you are “too big to fail,” you can get away with literally anything. Consider the case of HSBC bank, which was caught laundering billions of dollars for Mexican drug cartels and groups linked to al-Qaeda. And yet because HSBC was considered too big to fail (or jail), it got off with no criminal charges. The bald-faced immorality goes far beyond bailouts. Because corporations have enough money to buy off politicians with what to them is just pocket change, most of them pay lower tax rates than someone making a salary of $40,000 a year.
+
+- Capitalism is being widely questioned today because the past few years have shown that what is good for this thing called “the economy”—usually defined by stock prices and growth rates—doesn’t have much to do with what is good for most of us.
+
+- The whole civilization-as-jungle thing is a bizarre concept. Why did we spend the last ten thousand years discovering fire, painting on cave walls, developing writing, building Rome and Timbuktu, and creating philosophy and astronomy if the whole point was to eventually figure out how to live like we were back in the wild?
 
 *****
 
@@ -192,214 +220,79 @@ Each class can only be defined in terms of tension-filled relationships to the o
 
 --
 
-
-　Socialism . . . Seriously: A Brief Guide to Human Liberation
 　
-　Introduction
+#### 5. Who’s in Charge?
 　
-　　-- Page: 6, added on Sun Apr 27 18:36:07 2025
-
-socialism is a society whose top priority is meeting all of its people’s needs—ranging from food, shelter, and health care to art, culture, and companionship. In contrast, capitalism only cares about any of that basic human necessity stuff to the extent that money can be made off it
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 12, added on Sun Apr 27 18:49:18 2025
-
-it is certainly true that neither the “communist” dictators of Russia and China nor the mild “socialist” reformers in Sweden and France succeeded in creating the liberated democratic societies that Marx and Engels described in the Manifesto
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 13, added on Sun Apr 27 18:52:15 2025
-
-we are haunted—whether we know it or not—not only by the future horrors of capitalism but by the past failures of socialism
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 14, added on Sun Apr 27 18:55:48 2025
-
-two simple but far-reaching concepts about socialism:
-1. Working people control the government.
-2. The government controls the economy.
-Number 2 has been the main feature of countries that call themselves socialist or communist, but without Number 1—without democracy at every level of society—state control of the economy has nothing to do with socialism
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 14, added on Sun Apr 27 18:57:35 2025
-
-Socialists first got a glimpse of this in the 1871 revolution known as the Paris Commune, which created a new form of government in which officials were paid no more than the average worker’s wage and were immediately recallable if voters were unhappy with them.
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 15, added on Sun Apr 27 19:01:59 2025
-
-radical participatory democracy is the heart of the socialist vision.
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 15, added on Sun Apr 27 19:04:43 2025
-
-Before it lost its socialist character and became a dictatorship, the Russian Revolution was led by democratically elected soviets. These local bodies sprang up in factories, military barracks, and peasant villages across the country to conduct the revolution in their local areas and elect delegates to the regional and national soviet government.
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 15, added on Sun Apr 27 19:05:25 2025
-
-As with the Paris Commune, delegates to the soviet could be voted out immediately by unhappy voters. Housewives, domestic servants, and other working people who didn’t labor in factories could organize themselves into bodies and gain representation in the soviets. Only employers and police were excluded
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 17, added on Sun Apr 27 19:11:55 2025
-
-But there is also some truth to conservative fears that all social welfare programs carry within them the dangerous germ of socialism. Not because socialism is about government control but because these programs are evidence that capitalism cannot meet some of society’s most basic needs.
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 18, added on Sun Apr 27 19:15:22 2025
-
-Liberalism can agree with socialism that some things about capitalism should be reformed, and socialists often work alongside liberals to win those changes. Where we differ is that liberalism views reforms as ways to preserve capitalism while socialism sees them as steps toward replacing it
--=-=-=-=-=-
-　1. Ghost Stories
-　
-　　-- Page: 19, added on Sun Apr 27 18:48:32 2025
-
-“Communism” and “socialism” used to mean the same thing in most contexts for Marx and that’s how I treat them in this book.
--=-=-=-=-=-
-　2. Dig Deeper
-　
-　　-- Page: 21, added on Sun Apr 27 20:34:48 2025
-
-Inequality had been growing for decades—from 1979 the richest one-tenth of the One Percent saw their incomes quadruple while the number of people in poverty grew by fifty million. But that was a slow, mysterious process. In 2008 people saw the same thing happen within a few months, and it was obviously the result of a system that was stacked against us.
--=-=-=-=-=-
-　2. Dig Deeper
-　
-　　-- Page: 22, added on Sun Apr 27 20:37:42 2025
-
-if you are “too big to fail,” you can get away with literally anything
--=-=-=-=-=-
-　2. Dig Deeper
-　
-　　-- Page: 22, added on Sun Apr 27 20:38:00 2025
-
-Consider the case of HSBC bank, which was caught laundering billions of dollars for Mexican drug cartels and groups linked to al-Qaeda.
--=-=-=-=-=-
-　2. Dig Deeper
-　
-　　-- Page: 23, added on Sun Apr 27 20:38:10 2025
-
-And yet because HSBC was considered too big to fail (or jail), it got off with no criminal charges.
--=-=-=-=-=-
-　2. Dig Deeper
-　
-　　-- Page: 23, added on Sun Apr 27 20:39:40 2025
-
-The bald-faced immorality goes far beyond bailouts. Because corporations have enough money to buy off politicians with what to them is just pocket change, most of them pay lower tax rates than someone making a salary of $40,000 a year.
--=-=-=-=-=-
-　2. Dig Deeper
-　
-　　-- Page: 23, added on Sun Apr 27 20:40:25 2025
-
-Capitalism is being widely questioned today because the past few years have shown that what is good for this thing called “the economy”—usually defined by stock prices and growth rates—doesn’t have much to do with what is good for most of us
--=-=-=-=-=-
-　5. Who’s in Charge?
-　
-　　-- Page: 48, added on Mon Apr 28 19:54:36 2025
 
 All types of political systems have shacked up with capitalism, from parliamentary democracies to military dictatorships
--=-=-=-=-=-
-　5. Who’s in Charge?
+
+
 　
-　　-- Page: 49, added on Mon Apr 28 19:56:56 2025
 
 Full democracy is impossible under an economic system that depends on our lack of freedom.
--=-=-=-=-=-
-　5. Who’s in Charge?
-　
-　　-- Page: 49, added on Mon Apr 28 19:57:51 2025
+
+
 
 A system like this simply cannot allow the majority of people to vote on whether or not this setup should be changed
--=-=-=-=-=-
-　5. Who’s in Charge?
+
+
 　
-　　-- Page: 49, added on Mon Apr 28 19:59:23 2025
 
 Would there be a series of public forums in every community debating the NSA’s powers or private negotiations between the military-industrial complex and tech company executives? The answer to that question tells us who makes the real decisions under capitalism.
--=-=-=-=-=-
-　5. Who’s in Charge?
+
+
 　
-　　-- Page: 51, added on Mon Apr 28 20:36:33 2025
 
 It is impossible to have a society with vast economic inequality that does not also have vast political inequality. Here’s another way to put it: you can have billionaires or you can have democracy, but you cannot have a lot of both
--=-=-=-=-=-
-　5. Who’s in Charge?
+
+
 　
-　　-- Page: 52, added on Mon Apr 28 20:38:39 2025
 
 vast discrepancies in wealth lead to vast discrepancies in power—over all of us
--=-=-=-=-=-
-　5. Who’s in Charge?
+
 　
-　　-- Page: 52, added on Mon Apr 28 20:40:36 2025
 
 Economic inequality inevitably leads to political inequality, and just as the rich have been gaining political power, we have been losing it. We aren’t just poorer; we’re weaker and less organized. We work longer hours, pay more for health care, scramble to deal with more precarious childcare arrangements. We face more repression from law enforcement when we try to protest—or, if we are immigrants, Muslims, or African Americans, even when we don’t
--=-=-=-=-=-
-　5. Who’s in Charge?
+
+
 　
-　　-- Page: 53, added on Mon Apr 28 20:42:39 2025
 
 Every state hides its unaccountable authority over us by claiming to be so connected to us that accountability is unnecessary. There is supposed to be no difference between us and our government.
--=-=-=-=-=-
-　5. Who’s in Charge?
-　
-　　-- Page: 53, added on Mon Apr 28 20:42:49 2025
+
+
 
 In truth the first role of states has always been to see, think, and act for the ruling classes of their time, be they slave owners, feudal aristocrats, or transnational corporations
--=-=-=-=-=-
-　5. Who’s in Charge?
+
 　
-　　-- Page: 53, added on Mon Apr 28 20:43:22 2025
 
 Marx and Engels wrote in The Communist Manifesto that the role of capitalist states was to be “a committee for managing the common affairs of the whole bourgeoisie.” This is a vital function because capitalists are too blinded by competition in pursuit of immediate profits to engage in long-term planning.
--=-=-=-=-=-
-　5. Who’s in Charge?
+
+
 　
-　　-- Page: 53, added on Mon Apr 28 20:43:44 2025
 
 Capitalists need the state not just to babysit them but to create the basic conditions that make profitable investment possible.
--=-=-=-=-=-
-　5. Who’s in Charge?
+
 　
-　　-- Page: 54, added on Mon Apr 28 20:48:29 2025
 
 Conservatives are usually the ones arguing for “small government,” and yet they are huge fans of the vast armed wings of the state that make up by far the biggest aspect of government bureaucracy: the military, police, border patrol, and spy agencies. These are the state’s core functions, the repressive apparatus at the heart of every society where some have and others don’t.
--=-=-=-=-=-
-　5. Who’s in Charge?
+
+
 　
-　　-- Page: 54, added on Mon Apr 28 20:48:38 2025
 
 What conservatives find to be “government tyranny” are those additional services taken on by twentieth-century governments around the world in response to popular demand: caring for the elderly and the sick, monitoring discrimination and the food supply, and so on.
--=-=-=-=-=-
-　5. Who’s in Charge?
+
+
 　
-　　-- Page: 56, added on Mon Apr 28 20:52:03 2025
 
 Just as capitalism combines the tyranny of the individual owner with the anarchy of all the bosses’ competition with each other, it combines the repression of each state over its own population with the chaos of every state’s competition with every other for control of global trade and military dominance.
--=-=-=-=-=-
-　5. Who’s in Charge?
+
 　
-　　-- Page: 56, added on Mon Apr 28 20:53:17 2025
 
 Socialists call this global anarchy imperialism, and it includes everything from warfare to diplomacy to trade agreements, whatever can give one nation a leg up
--=-=-=-=-=-
-　Part 3: Socialism
-　
-　　-- Page: 59, added on Mon Apr 28 20:55:05 2025
 
-Part 3:
-Socialism
--=-=-=-=-=-
+
 　6. Imagine
 　
-　　-- Page: 67, added on Mon Apr 28 21:20:42 2025
 
 When governments enact laws, we look for how they might abuse their new powers. But when people come together to fight for even the smallest improvement at work, at school, or on the streets, we see the germs of a new form of society.
--=-=-=-=-=-
+
