@@ -404,3 +404,196 @@ Socialists call this global anarchy imperialism, and it includes everything from
 
 When governments enact laws, we look for how they might abuse their new powers. But when people come together to fight for even the smallest improvement at work, at school, or on the streets, we see the germs of a new form of society.
 
+
+
+
+
+
+
+
+
+
+Socialism . . . Seriously: A Brief Guide to Human Liberation
+Danny Katch
+
+Revolution!
+
+*****
+
+Revolutions are the fullest expression of social life, when the majority of the population pushes away its self-appointed spokespeople and demands to make itself heard.
+
+*****
+
+Revolutions are not a single event but a process, which unfortunately involves many defeats, some of which are decisive and last decades, while others prove to be more temporary setbacks.
+
+*****
+
+reformism, which is the idea that we can not only win various reforms to make capitalism a little better for a little while but that by passing more and more progressive laws we can slowly but surely reform capitalism itself into a system that works for the majority of humanity. Reformism is an appealing strategy because it seems a lot more practical than revolution. The problem is that if your goal is socialism, reformism doesn’t work.
+Socialism can’t be gradually voted into existence.
+
+*****
+
+It is only through the experiences of revolution that millions of workers go through the learning process necessary to run society
+
+*****
+
+not necessarily referring to military battles but intense conflicts between classes that could take many forms—from workplace occupations to creating new constitutions to street battles with police or soldiers. These conflicts can involve not just pain and loss but the exhilaration of discovering previously unknown capacities and skills—as individuals, as a class, and as a society.
+
+*****
+
+For socialists, being a revolutionary is not a state of mind, a style of protest,
+
+*****
+
+Instead it’s about understanding that capitalism inevitably produces revolutions and doing what you can to prepare for them so that theymight win—
+
+*****
+
+t means training ourselves and those who join us for the future—by reading and discussing the lessons of the past and fighting and learning how to win in the protest movements of the present.
+
+*****
+
+Revolutionaries, by contrast, want to make sure there’s time for political discussions so that people can explore new perspectives they’re gaining from their experience in the movement.
+
+*****
+
+People have good reason to be suspicious that socialists intend to simply use workers as an army to overturn capitalism and then turn on them once in power. History is filled with examples of rebellions that end with the masses being betrayed by the leaders they put into power.
+
+*****
+
+The first thing to understand about the Russian Revolution is that there was not one revolution but two: the overthrow of the tsar in February and the creation of a soviet government in October. The February revolution was not planned by Lenin—or anybody else. It exploded mostly spontaneously after a strike of women clothing workers spread across the capital cit
+
+*****
+
+The first Provisional Government was dominated by parties from the wealthy landowning and capitalist classes, which is also not unusual. After a tyrant is overthrown, the initial government to replace it often contains people who for the most part supported the old regime but now claim to have always been on the side of the people.
+
+*****
+
+For the elites in charge of the Provisional Government, democracy meant having an elected government—someday; they kept putting off the elections—that would maintain the tsar’s policies, most importantly continuing the war.
+--
+Ww1
+
+*****
+
+But the Provisional Government’s plans were challenged by new organizations created by the revolution called soviets, councils of elected representatives that started in the factories of the capital and then spread among workers, peasants, soldiers, students, women, neighborhoods, and villages. These soviets controlled the post office, railroads, and food distribution in the capital city, and as the year went on, their influence spread across the country. Military officers on the front could not even have their orders carried out without the approval of the soldiers’ council,
+
+*****
+
+The Bolsheviks were a minority force at the beginning of the revolution, but that changed as the year went on and the Provisional Government continued to find new excuses for not meeting the demands of workers and peasants, most of which began with “as soon as we win this war.” Through months of stormy protests, strikes, peasant uprisings, and army mutinies, the Bolsheviks grew from a few thousand based among the most radical factory workers to an organization of hundreds of thousands based in many workplaces and throughout the army and nav
+
+*****
+
+By the fall, Bolsheviks had been elected to the majority of the citywide soviets in the capital city,
+
+*****
+
+to take power from the official government. When they finally did in October, the move was so widely supported that there were almost no soldiers in the capital who defended the official government, although the fighting in other cities lasted for a few weeks.
+
+*****
+
+While the majority of Russian workers supported the October revolution, the more moderate socialist parties rejected it on the grounds that it was not democratic because it hadn’t been elected, a detail they hadn’t found objectionable in February when the tsar was overthrown without a formal vote having taken place.
+
+*****
+
+The fact is that every revolution happens without a vote: If the change people are looking for could happen within the election process, there would be no need to revolt.
+
+*****
+
+The first acts of the new soviet government were directed toward giving workers control of the factories and peasants control of the land—not through strict government control but through their own actions. These decrees called on the soviets and other popular committees of workers and peasants to take over the land and factories themselves. The Bolsheviks were using their control of the government to create a new kind of state based on people taking power for themselves.
+Within weeks, the soviet government had called for an immediate end to Russia’s participation in the war and legalized divorce, abortion, and homosexuality—narrowly beating the United States on these progressive reforms by around fifty years or so. It also declared that nations controlled by the tsar’s empire had the right to declare independence and embarrassed Russia’s “democratic” allies England and France by publishing their secret plans to divide up the colonial territories of their enemies after the war.
+
+*****
+
+There were more uprisings to come in Germany and elsewhere, but no successful revolutions, which made the eventual failure of the Russian Revolution inevitable, as the Bolsheviks knew. They had always said that socialism couldn’t succeed if it was isolated in Russia
+
+*****
+
+faced starvation, while peasants were furious that the new government they had fought for was now taking their bread to feed the workers. As workers lost their strength and organization, real authority shifted from soviets to the bureaucracy of the Bolshevik government. Many peasants turned against the revolution and led uprisings that were suppressed. Leaders like Lenin and Trotsky publicly worried that the popular character of the revolution was deteriorating and urged government officials to maintain as much democratic culture as possible while waiting for new revolutions to break out in other countries and relieve Russia’s isolation
+
+*****
+
+countryside.9But some prominent Bolsheviks, led by Joseph Stalin, concluded that if the revolution wasn’t going to spread, it would be better to survive in power by creating an autocracy than to wait to be overthrown by foreign armies and the old Russian ruling classes. Stalin maneuvered his way into a dictatorship and launched a historic reign of terror, featuring slave labor camps and mass executions of political enemies. Every gain of the revolution was reversed: art and writing were rigorously censored, homosexuality and abortion were criminalized again, and women were told that being a good communist meant having lots of children for Mother Russia.
+
+*****
+
+The defeat from within of the Soviet Union was a decade-long process in which the soviets stopped functioning in conditions of war and mass poverty and the Bolshevik Party was left in charge of a state presiding over a devastated economy. As the party had to make more and more emergency decisions—often with the fate of the revolution on the line—the revolutionary dynamic of the people fighting for their own liberation completely shifted to a small number of ex-revolutionaries fighting for their own position as the leaders of the country
+
+*****
+
+After taking over the Bolshevik Party and government, Stalin and his allies manipulated the loyalty of the Communist parties that had formed around the world in 1917, handpicked new leaders who would blindly obey Moscow, and turned the primary function of these once-revolutionary parties into being cheerleaders for Russian foreign policy—
+
+*****
+
+The result was that in subsequent revolutions, Communist parties played the same role that the moderate socialists had played in Russia, arguing that the working class was not ready to take power.
+
+*****
+
+The tragic outcome of the Russian Revolution and the Communist parties it inspired has cast a shadow over every subsequent generation attempting to challenge capitalism. It has become widely accepted that working-class revolution is not possible or desirable—even among those who consider themselves anticapitalist revolutionaries.
+
+*****
+
+Workers are usually so busy being exploited and oppressed that they appear to have little interest in the major political questions of the day, much less the ability to solve them. But the seismic shift of revolution reveals that the class has more depth than was visible from the surface.
+
+*****
+
+Those who focus only on the chaos and violence of revolutions imply that there is a peaceful democratic alternative. But revolutions occur precisely because there isn’t. They are emergency measures taken spontaneously by large numbers of people, and, being emergency measures, they are usually not carefully planned and thought through. They almost always happen before the conditions are fully ripe for them to succeed. And so when they break out, there are always various people, some of whom may even have spent much of their lives thinking they would support a revolution, who when finally faced with one declare that now is not the time, that the working class isn’t ready. But it’s only through the process of revolution, daunting as it is, that workers can become ready.
+
+*****
+
+The role of revolutionaries is not to create revolutions but to prepare for them.
+
+*****
+
+What I’ve been describing, a revolutionary project based on the potential of the working class to overthrow capitalism and create a classless society, is more properly known as Marxism.
+
+*****
+
+One strand of socialism is social democracy, which can be seen in its classic form today in some of the large socialist parties in Europe. A hundred years ago, these parties claimed to support the overthrow of capitalism by the working class but argued that this would occur not through revolutionary upheavals but via gradual implementation from elected governments. On this basis they opposed the Bolshevik-led revolution for being undemocratic. Over the course of the twentieth century, many of these parties won elections and had the chance to implement their lofty rhetoric of socialist transformation. In every case, they limited themselves to (at best) enacting programs of free health care and education that represented major progress but didn’t challenge the overall authority of the capitalist class to run the economy based on profit. As the capitalists and social democrats learned how to coexist—and even get along—social democracy moved away from even mild reformism. Today most of these parties model themselves after the Democratic Party, which former Republican strategist Kevin Phillips once called “the world’s second-most enthusiastic capitalist party
+
+*****
+
+The revolutionary socialists who supported the Russian Revolution eventually split between the Stalinist Communist parties and the far smaller Trotskyist organizations that opposed the Soviet Union’s turn toward dictatorship and argued that socialism must be both revolutionaryanddemocratic.
+
+*****
+
+the next generation found its inspiration in the wave of revolutions in China, Cuba, and the former colonial world across Africa and Asia. These revolutions reinforced the idea that radical change was possible and
+
+*****
+
+but since most of them had little to do with workers taking power they also pushed the concept of socialism further away from working-class democracy and toward the much more limited concepts of national independence and centralized economic planning.
+
+*****
+
+By the middle of the twentieth century, socialism became defined as either mild social democracy on the one hand, or one-party “people’s” dictatorships on the other. This division was—and still is—commonly expressed as socialism versus communism, which distorted the original meaning of not one word but two. Earlier socialists like Marx and Lenin had usedsocialismandcommunismalmost interchangeably. In some writings, Marx and Engels usedsocialismto refer to that first period after a working-class revolution andcommunismto refer to a later classless era. But this distinction didn’t stop them and other communists from going back and forth between the two words in the names of their books and organizations.1I
+
+*****
+
+heartbeat.The irony of the supposed difference between “socialism” and “communism” was that both sides had more in common with each other than they did with anything Marx wrote. Both social democracy and Stalinism were a type of “socialism from above”—as
+
+*****
+
+What unites the many different forms of socialism-from-above is the conception that socialism must be handed down to the grateful masses in one form or another, by a ruling elite which is not subject to their control in fact. The heart of socialism-from-below is its view that socialism can be realized only through the self-emancipation of activized masses “from below” in a struggle to take charge of their own destiny as actors (not merely subjects) on the stage of history
+
+*****
+
+Stalinism, social democracy, and other forms of socialism all went into decline in the later decades of the twentieth century. But rather than helping Trotskyism, this led people around the world to reject socialism outright.
+
+*****
+
+deciding to be a socialist or anarchist doesn’t restrict your ideas. It gives them more structure, which actually helps you think for yourself in a society dominated by the ideas of capitalism. Most activists who reject all “isms” are deluding themselves that they are free thinkers when in fact they are limited thinkers, avoiding a systematic assessment of the big “ism” that shapes every aspect of our lives and thoughts.
+
+*****
+
+liberalism is a default category. You don’t have to make a decision to be a liberal—that’s just what anyone who isn’t conservative is called.
+
+*****
+
+Unlike liberalism, socialism must be a conscious choice: a rejection of the idea that humanity can’t do better than capitalism. That’s why identifying as a socialist doesn’t limit your intellectual horizons but frees them.
+
+*****
+
+Language does matter, and if we water down the words we use to describe our goals, eventually we’ll water down our goals, too.
+
+--
+Reading books with ReadEra
+https://readera.org
