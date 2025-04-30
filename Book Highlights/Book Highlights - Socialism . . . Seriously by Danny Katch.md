@@ -428,3 +428,84 @@ Language does matter, and if we water down the words we use to describe our goal
 --
 Reading books with ReadEra
 https://readera.org
+
+
+
+
+Socialism . . . Seriously: A Brief Guide to Human Liberation
+Danny Katch
+
+Socialism has often been portrayed in science fiction in these types of gray dystopian terms, which reflect the ambivalence that many artists have toward capitalism. Artists are often repulsed by the antihuman values and commercialized culture of their society, but they are also aware that they have a unique status within it that allows them to express their creative individuality—as long as it sells. They fear that socialism would strip them of that status and reduce them to the level of mere workers, because they are unable to imagine a world that values and encourages the artistic expression of all of its members
+
+*****
+
+we don’t want to live in a society without creativity and excitement, and also because if those things are being stifled then there must be a certain ruling clique or class that is doing the stifling—whether or not they think it’s for our own good. Finally, if socialism is stale and static, it will never be able to replace capitalism, which can accurately be called many nasty things, but boring is not one of them.
+
+*****
+
+Capitalism can reinvent itself far more quickly than any previous economic order.
+
+*****
+
+While earlier class societies desperately tried to maintain the status quo, capitalism thrives on overturning it.
+The result is a world in constant motion
+
+*****
+
+to live in modern capitalism is “to find ourselves in an environment that promises us adventure, power, joy, growth, transformation of ourselves and the world—and at the same time, that threatens to destroy everything we have, everything we know, everything we are.”
+
+*****
+
+The sacrifice of individuals in the name of societal progress is said to be one of the horrors of socialism, a world run by faceless bureaucrats supposedly acting for the common good. But there are plenty of invisible and unelected decision makers under capitalism, from health insurance officials who don’t know us but can determine whether our surgery is “necessary” to billionaire-funded foundations that declare schools they have never visited to be “failures.”
+
+*****
+
+the years between the October revolution and Stalin’s final consolidation of power demonstrated the excitement of a society in which new doors are open to the majority classes for the first time.
+There was an explosion of art and culture.
+
+*****
+
+Socialism didn’t find talented artists to be a threat to “equality” or find a contradiction between appreciating individual artists and opening up the previously elitist art world to the masses of workers and peasants.
+
+*****
+
+When organizers view consensus not only as a temporary tactic but as a model for how society should be run, however, there is a problem. I want to live in a democratic society with conflicts and arguments, where people aren’t afraid to stand up for what they believe in and don’t feel pressured to soften their opinions so that, when a compromise is reached, we can pretend that we all agreed in the first place. If your case for socialism rests on the idea that people will stop getting into arguments and even occasionally acting like jerks, you should probably find another cause.
+
+*****
+
+To be an effective socialist, it is extremely helpful to like human beings. Not humanity as a concept but real, sweaty people.
+
+*****
+
+Loving the public but not people is also a feature of elitist socialists, whose faith rests more on five-year development plans, utopian blueprints, or winning future elections than on the wonders that hundreds of millions can achieve when they are inspired and liberated. That is why their visions for socialism are so lifeless and unimaginative. By contrast, Marx, who is often presented as an isolated intellectual, was a rowdy, argumentative, funny, passionate person who once declared that his favorite saying was the maxim: “I am a human being, I consider nothing that is human alien to me.”
+
+*****
+
+Religious suffering is, at one and the same time, the expression of real suffering and a protest against real suffering. Religion is the sigh of the oppressed creature, the heart of a heartless world, and the soul of soulless conditions. It is the opium of the people.
+The abolition of religion as theillusoryhappiness of the people is the demand for theirrealhappiness. To call on them to give up their illusions about their condition is to call on them to give up a condition that requires illusions.
+--
+Marxs:
+
+*****
+
+Marx was less concerned about whether people believed in heaven than about a world that drives so many to console themselves that they’ll be happier when they are dead
+
+*****
+
+If religion is defined as the way we try to understand what place our tiny insignificant lives have in the giant scary universe, then socialists don’t oppose religion any more than we oppose culture, philosophy, or the other foundations of the human intellect.
+
+*****
+
+Dismissing socialism as a religious fantasy leaves you with no choice but to accept capitalism as the only rational reality, which is a problem because capitalism is real, but it certainly isn’t rational. Capitalist economic theory borrows heavily from religion, replacing God with the Free Market, an invisible but omnipresent force that sometimes works in mysterious ways but should never be questioned because we live according to Its law. When economies succeed, all praise is due to the Free Market. When they fail, we must have done something to anger It, like raising the minimum wage or limiting how much factories can pollute the air. Or at least this is what we are told by the well-compensated high priests who interpret Its workings for the lay people.
+
+*****
+
+Socialism makes the bold but reasonable claim that we are capable of taking control of the structures we have created and using them to elevate cooperation over competition. This allows socialism to overcome capitalism’s moral failure of relentless individualism. Socialism doesn’t disregard our individuality. It adds to it while making it part of something bigger.
+
+*****
+
+In doing so, it shows how some of the contradictions of liberalism, in which your freedom may flourish only at the expense of mine, may be resolved. Only through others can we finally come into our own. This means an enrichment of individual freedom, not a diminishing of it.
+
+--
+Reading books with ReadEra
+https://readera.org
