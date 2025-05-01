@@ -1,6 +1,6 @@
-The ABCs of Socialism
+### The ABCs of Socialism
 
-Isn’t America already kind of socialist?
+#### Isn’t America already kind of socialist?
 
 *****
 
