@@ -252,5 +252,106 @@ In this ef f ort — and the struggle to def i ne the values of a more just soci
 Our shared nature actually helps us build and def i ne the values of a more just society.
 
 --
-Reading books with ReadEra
-https://readera.org
+
+
+
+#### Don’t the rich deserve to keep most of their money? (Michael A. McCarthy)
+
+*****
+
+the socialist justif i cation for taxes is grounded in a view — not often captured in opinion polls — about how capitalist wealth is actually created.
+
+*****
+
+Tax policy does two things in capitalist society. First, it determines what share of the total economic pie will be managed by the public, in the form of government revenue, and how much will be left to the use of private actors like individuals and corporations. Second, it stipulates how that public share is divvied up between the competing needs and wants of individuals, organizations, and corporations. The fi rst is about resource control while the second is a matter of allocation.
+
+*****
+
+Even when a government takes in high tax revenue, it does not necessarily put it to progressive ends. Just consider the huge benef i ts that fl ow to corporations through subsidies or state-supported research and development, and it’s easy to see how gov-ernments can redistribute up, down, or horizontally.
+
+*****
+
+In a capitalist economy, where productive resources remain privately owned, socialists call for a signif i cant por-tion of the social product to be controlled publicly and democratically redistributed downward.
+
+*****
+
+But socialists should not fall back on the common liberal criterion for taxation: that a person or corporation’s ability to pay should
+
+*****
+
+determine the amount they pay.
+
+*****
+
+The socialist view of redistribution within a capitalist society must reject an important premise at play in nearly all tax policy debates: that pre-tax income is some-thing earned solely by individual ef f ort and possessed privately before the state inter-venes to take a part of it. Once we break from this libertarian fantasy, it’s easy to see that individual and corporate income is made possible only through tax-f i nanced state action.
+
+*****
+
+The capitalist economy is not self- regulating. The fi rst precondition for fi rms to earn prof i ts is state-enforced property rights, which give some people ownership and control over productive resources while excluding others. Second, governments
+
+*****
+
+have to manage labor markets to help ensure that the skill needs of fi rms are met. States do this through setting immigration and education policies.
+
+*****
+
+Third, most capitalists want states to enforce anti-trust, contract, criminal, property, and tort laws, as it makes market interactions more predictable and reliable. And fi nally, the capitalist economy needs a working infra-structure. Even most libertarians argue that state control over the money supply and interest rates is necessary to spur or slow growth when the economy needs it.
+
+*****
+
+All of this is done with taxes. I
+
+*****
+
+A person’s income or a corporation’s prof i ts are in part the result of governments collecting taxes and actively creating the conditions under which they were able to make money in the fi rst place.
+
+*****
+
+The socialist case for taxation and pro-gressive redistribution is built from three basic factors of how capitalism works. First, as just explored, personal incomes and corporate prof i ts are not simply the result of individual work and business competi-tion — instead they are part of a broader social product.
+
+*****
+
+Second, the class inequality that results from making this social product
+
+*****
+
+is relational. Capitalists are able to accu-mulate large stores of wealth only because workers do not. All things being equal, fi rms can raise their prof i ts in inverse proportion to the labor costs they bear
+
+*****
+
+Taxation provides a partial remedy to that essential, structural inequality of capitalist society.
+
+*****
+
+Third, redistribution through taxation is a means of extending individual freedom — not curtailing it,
+
+*****
+
+On one side, there is negative freedom, the absence of coercion or “freedom from” that is the hallmark of most common con-ceptions of freedom
+
+*****
+
+taxes fund a variety of public provisions that of f er cit-izens some measure of freedom from the private tyranny of fi rms
+
+*****
+
+In the context of tax policy, however, positive freedom matters as well. Positive freedom is the “ability to” — the capacity to do things, and the possibility of selecting goals and making ef f orts to realize them. 
+Such freedom requires resources.
+
+*****
+
+The public education system, for example, which of f ers citizens the opportunity to develop knowl-edge and skills in pursuit of both collective
+
+*****
+
+and individual ambitions, is a bedrock of positive freedom that can only be sustained through taxation.
+
+*****
+
+In a truly socialist society, the combi-nation of political and economic equality would of f er everyone a far greater degree of both negative and positive freedom than they enjoy under capitalism. Until we realize that world, progressive redis-tribution through taxation is both a means to redress structural inequalities and the primary way we can expand and extend freedom to as many people as possible.
+
+*****
+
+Wealth is socially created — redistribution just allows more people to enjoy the fruits of their labor.
+
+--
