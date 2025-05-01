@@ -81,13 +81,7 @@ No, socialism isn’t just more government — it’s about democratic ownership
 
 ---
 
-The ABCs of Socialism
-
-But at least capitalism is free and democratic, right?
-
-*****
-
-Erik Olin Wright
+#### But at least capitalism is free and democratic, right? (Erik Olin Wright)
 
 *****
 
@@ -205,3 +199,58 @@ https://readera.org
 
 
 
+#### Socialism sounds good in theory, but doesn’t human nature make it impossible to realize? (Adaner Usmani & Bhaskar Sunkara)
+
+*****
+
+People are complex: they do unspeakable things, but they also engage in remarkable acts of kindness and, even in dif f i cult situations, show deep regard for others.
+
+*****
+
+For at least two reasons, socialists are committed to the view that all humans share some important interests. The fi rst is a moral one.
+
+*****
+
+Our outrage that individuals are denied the right to live free and full lives is anchored in the idea that people are inherently cre-ative and curious, and that capitalism too often stif l es these qualities.
+
+*****
+
+Having a conception of human nature also helps us make sense of the world around us. And by helping us to interpret the world, it aids our ef f orts to change it, as well.
+--
+2nd reason
+
+*****
+
+Resistance to exploitation and oppression is a constant throughout history — it is as much a part of human nature as competitiveness, or greed. The world around us is fi lled with instances of people defending their lives and dignity.
+
+*****
+
+Of course, the history of all “hitherto existing society” is also a record of passivity and even acquiescence. Mass collective action against exploitation and oppres-sion is rare. If humans everywhere are committed to defending their individual interests, why don’t we resist more?
+
+*****
+
+Under ordinary circumstances, the risks associated with acting collectively often seem overwhelming.
+
+*****
+
+Collective action requires many dif f erent individuals to decide to take these risks together, so it’s not surprising that it is uncommon and mostly fl eeting.
+
+*****
+
+Put dif f erently, socialists don’t believe that the absence of mass movements is a sign that people have no inherent desire to fi ght back, or worse, that they don’t even recognize what their interests are. Rather, protest is uncommon because people are smart. They know that in the present polit-ical moment change is a risky, distant hope, so they develop other strategies to get by.
+
+*****
+
+one of our prin-cipal tasks as socialists is to support these movements, to help make collective action a viable choice for even more people.
+
+*****
+
+In this ef f ort — and the struggle to def i ne the values of a more just society — we will be aided, not hurt, by our shared nature. ■ 23847 The
+
+*****
+
+Our shared nature actually helps us build and def i ne the values of a more just society.
+
+--
+Reading books with ReadEra
+https://readera.org
