@@ -124,3 +124,52 @@ This is the context of _democracy_. In both, the paramount concern is that peopl
 
 ---
 
+
+#### Will socialists take my Kenny Loggins records? (Bhaskar Sunkara)
+
+  
+- Socialists simply don’t want a world without personal property — the things meant for individual consumption. Instead, socialists strive for a society without private property — the things that give the people who own them power over those who don’t.
+
+- Exploitation is not unique to capitalism. It’s around in any class society, and simply means that some people are compelled to labor under the direction of, and for the benefit of, others. Battles won by labor movements to limit the scope and intensity of exploitation only ever mitigated in capitalism, never eliminated. That persistent difference between what you produce and what you get back in return is exploitation — a key source of profits and wealth in capitalism.
+
+- Radically changing things would mean taking away the source of capitalists’ power: the private ownership of property. That’s the socialist vision: abolishing private ownership of the things we all need and use — factories, banks, offices, natural resources, utilities, communication and transportation infrastructure — and replacing it with social ownership, thereby undercutting the power of elites to hoard wealth and power. And that’s also the ethical appeal of socialism: a world where people don’t try to control others for personal gain, but instead cooperate so that everyone can flourish.
+
+**Socialists want a world without private property, not personal property.**
+
+---
+
+#### Doesn’t socialism always end up in dictatorship? (Joseph M. Schwartz)
+
+- Socialism, of all stripes, was conflated with the crimes of the Soviet Union and doomed to the trash heap of bad ideas. Yet many socialists were consistent opponents of authoritarianism of both left and right varieties. Marx himself understood that only by the power of their democratic numbers could workers create a socialist society.
+
+- Despite the common assertion that “capitalism equals democracy,” capitalists themselves, absent the pressure from an organized working class, have never supported democratic reforms.
+
+- While criticizing capitalism as anti-democratic, democratic socialists consistently opposed authoritarian governments that claim to be socialist. Revolutionaries such as Rosa Luxemburg and Victor Serge criticized early Soviet rule for banning opposition parties, eliminating experiments in workplace democracy, and failing to embrace political pluralism and civil liberties. If the state owns the means of production, the question remains: how democratic is the state? 
+
+    As Luxemburg wrote in her 1918 pamphlet on the Russian Revolution:
+    > Without general elections, without freedom of the press, freedom of speech, freedom of assembly, without the free battle of opinions, life in every public institution withers away, becomes a car-icature of itself, and bureaucracy rises as the only deciding factor.
+
+  
+- Corporations are forms of hierarchical dictatorships, as those who work in them have no voice in how they produce, what they produce, and how the profit they create is utilized. 
+
+- Democratizing a complex economy would likely take a variety of institutional forms, ranging from worker ownership and cooperatives, to state ownership of fi nancial institutions and natural monopolies (such as telecommunications and energy) — as well as international regulation of labor and environmental standards. The overall structure of the economy would be determined through democratic politics and not by state bureaucrats. But the question remains: how to move beyond capitalist oligarchy to socialist democracy?
+
+- By the late 1970s, French and Swedish capital invested abroad instead of at home, creating a recession that halted the promising moves toward democratic socialism. The policies of Thatcher and Reagan, which ushered in over thirty years of de-unionization and cuts to the safety net, confirmed the Left’s prediction that either socialists would move beyond the welfare state to democratic control over capital or capitalist power would erode the gains of postwar social democracy.
+
+    Today, socialists across the world face the daunting challenge of how to rebuild working-class political power strong enough to defeat the consensus of both conservatives and Third Way social democrats in favor of corporate-dictated austerity.
+
+- In many ways, one-party Communist states shared more in common with past authoritarian capitalist “developmentalist” states — such as late nineteenth-century Prussia and Japan, and postwar South Korea and Taiwan — than with the vision of democratic socialism. These governments prioritized state-led industrialization over democratic rights, particularly those of an independent labor movement.
+
+    Neither Marx nor classic European socialism anticipated that revolutionary socialist parties might most readily seize power in predominantly agrarian, auto-cratic societies. In part, these parties were based in a nascent working class radicalized by the exploitation of foreign capital. The Marxist tradition had little to say about how predominantly agrarian and postcolonial societies could develop in an equitable and democratic manner. What history does tell us is that trying to force peasants who had just been given private land by Communist revolutionaries back onto collective state farms results in brutal civil wars that sets back economic development for decades.
+
+- Contemporary economic reforms in China, Vietnam, and Cuba favor a mixed-market economy with a significant role for foreign capital and private land-owning peasants. But one-party elites instituting these experiments in economic pluralism have almost always repressed advocates of political pluralism, civil liberties, and labor rights.
+
+    Of course, there also exists a rich history of experiments in democratic socialism in the developing world. But the United States government and global capitalist interests consistently work to undermine even these modest efforts at economic democracy. For students of history, the question should be not whether socialism necessarily leads to dictatorship, but whether a revived socialist movement can overcome the oligarchic and anti-democratic nature of capitalism.
+
+  
+
+**Socialism is often conflated with authoritarianism. But historically, socialists have been among democracy’s staunchest advocates**
+
+---
+
+
