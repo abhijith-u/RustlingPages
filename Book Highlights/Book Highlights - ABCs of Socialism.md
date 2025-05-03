@@ -185,6 +185,8 @@ This is the context of _democracy_. In both, the paramount concern is that peopl
   
 - Socialism is not Eurocentric because the logic of capital is universal — and so is resistance against it. Cultural specificities may shape some details of capital’s operation differently in the United States and in Bangladesh, in France and in Nicaragua, but they do not alter its fundamental prioritization of profits over people.
 
+    The crime of capitalism is that it forces the vast majority of the population to remain preoccupied with basic concerns of nutrition, housing, health, and skill acquisition. It leaves little time for fostering the community and creativity that humans crave.
+
     Capitalism does not merely oppress workers on the factory floor. It creates an entire culture in which the logic of oppression and competition become common sense. It turns people against each other and their own humanity. There is nothing Eurocentric in rejecting the destructive logic of capital and fighting for a better world to replace it.
 
   
