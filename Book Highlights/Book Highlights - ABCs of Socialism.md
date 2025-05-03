@@ -173,3 +173,25 @@ This is the context of _democracy_. In both, the paramount concern is that peopl
 ---
 
 
+#### Is socialism a Western concept? (Nivedita Majumdar)
+
+  
+- Within the Left itself, there is suspicion of an ideal many view as single-mindedly focused on economic issues and distant from other everyday sufferings, especially those of black and brown people. The underlying assumption in these related lines of attack is that socialism, a supposedly Western (and white) ideology, while capable of addressing economic injustices, remains incapable of speaking to the lived experience of oppression and discrimination in the Global South, as well as oppressed groups elsewhere.
+
+  
+- The laws of the market, whatever the claims of neoclassical economics, are not fair or impartial. The superior economic and political might of capital ensures that the market’s laws are always fixed in its favor. Against all odds, workers invariably fight back. But it’s always an agonizing battle, with capital using every weapon in its arsenal to crush workers’ resistance. The bosses’ crude methods include physical intimidation when they can get away with it, as in Bangladesh, and more polished gambits, like closing down entire stores, as in the United States.
+
+    This is a specific kind of dehumanization, born of deprivation and powerlessness and familiar to workers in every part of the world, who are forced to choose between their livelihood and their safety. Socialism identifies the source of such dehumanization — private ownership and exploitation — and rejects it.
+  
+- Socialism is not Eurocentric because the logic of capital is universal — and so is resistance against it. Cultural specificities may shape some details of capital’s operation differently in the United States and in Bangladesh, in France and in Nicaragua, but they do not alter its fundamental prioritization of profits over people.
+
+    Capitalism does not merely oppress workers on the factory floor. It creates an entire culture in which the logic of oppression and competition become common sense. It turns people against each other and their own humanity. There is nothing Eurocentric in rejecting the destructive logic of capital and fighting for a better world to replace it.
+
+  
+
+**Socialism is not Eurocentric because the logic of capital is universal — and so is resistance against it.**
+
+
+---
+
+
