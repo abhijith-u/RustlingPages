@@ -196,4 +196,35 @@ This is the context of _democracy_. In both, the paramount concern is that peopl
 
 ---
 
+#### What about racism? Don’t socialists only care about class (Keeanga-Yamahtta Taylor)
+
+- By every barometer in American society — health care, education, employment, poverty — African Americans are worse off. Elected officials from across the political spectrum often blame these disparities on an absence of “personal responsibility” or view them as a cultural phenomenon particular to African Americans. In reality, racial inequality has been largely produced by government policy and private institutions that not only impov-erish African Americans but also demonize and criminalize them.
+
+- Crafting better public policy and banning discriminatory behavior by individuals or institutions won’t do the job. And while there is a serious need for government action banning practices that harm entire groups of people, these strategies fail to grasp the scale and depth of racial in- equality in the United States.
+
+- Divide and Rule : Because of the gross inequality it pro-duces, capitalism relies on various political, social, and ideological tools to rationalize that inequality while simultaneously dividing the majority, who have every interest in uniting to resist it. Racism is only one among many oppressions intended to serve this purpose. The central objective was preserving the institution of slavery and the enormous riches that it produced.
+
+    As Karl Marx recognized,
+    > Direct slavery is just as much the pivot of bourgeois industry as machinery, credits, etc.
+
+- The literal dehumanization of Africans for the sake of labor was used to justify their harsh treatment and their debased status in the United States. This dehumanization did not simply end when slavery was abolished. The debasement of blacks also made African Americans more vulnerable to economic coercion and manipulation — not just “anti-blackness.” Coercion and manipulation were rooted in the evolving economic demands of capital, but their impact rippled far beyond the economic realm.
+
+- African Americans were so thoroughly banished from political, civil, and social life that it was virtually impossible for the vast majority of poor and working-class whites to even conceive of uniting with blacks to challenge the rule and authority of the ruling white clique.
+
+    Marx grasped the modern dynamics of racism as the means by which workers who had common objective interests could also become mortal enemies because of subjective — but nevertheless real — racist and nationalist ideas. This antagonism is artificially kept alive and intensified by the press, the pulpit, the comic papers, in short by all the means at the disposal of the ruling classes. This antagonism is the secret of the impotence of the English working class, despite its organization. It is the secret by which the capitalist maintains its power. And that class is fully aware of it.
+
+  
+- Within the socialist tradition, many have also argued that because African Americans and most other nonwhites are disproportionately poor and working class, campaigns aimed at ending eco-nomic inequality alone would stop their oppression.
+
+    This stance ignores how racism constitutes its own basis for oppression for nonwhite people. Ordinary blacks and other nonwhite minorities are oppressed not only because of their poverty but also because of their racial or ethnic identities.
+There is also no direct correlation between economic expansion or improved economic conditions and a decrease in racial inequality. In reality, racial discrim-ination often prevents African Americans and others from fully accessing the fruits of economic expansion. Looking at racism as only a byproduct of economic inequality ignores the ways that racism exists as an independent force that wreaks havoc in the lives of all African Americans.
+
+- Antiracist struggles also take place in response to the social crises black com-munities experience, including struggles against racial prof i ling; police brutality; housing, health care, and educational inequality; and mass incarceration and other aspects of the “criminal justice” system. Unity cannot be achieved by suggesting that black people should downplay the role of racism in our society so as not to alienate whites — while only focusing on the “more important” struggle against economic inequality.
+
+    This is why multiracial groupings of socialists have always participated in strug-gles against racism. Violent conflict between working-class blacks and whites underlined the extent to which racial division destroyed the bonds of solidarity necessary to collectively challenge employers, landlords, and elected officials.
+
+
+**We actually think that the struggle against racism is central to undoing the ruling class’s power.**
+
+---
 
