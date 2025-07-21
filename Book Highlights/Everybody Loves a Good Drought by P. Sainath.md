@@ -1,221 +1,67 @@
-Everybody Loves a Good Drought
-P. Sainath
+#### Everybody Loves a Good Drought by P. Sainath
 
-health
+##### Health
+- In any case, looking too closely at India’s real health problems has this catch. It raises troubling questions about the West’s own role in promoting certain models and enforcing these on developing countries via pressure from funding institutions.
+	
+	In 1992, USAID gave India US $ 325 million (Rs. 800 crores) to be spent solely on population control in the state of Uttar Pradesh. This programme has serious implications. One is that hazardous contraceptives like Norplant will be pushed onto very poof rural women who have little or no access to proper health care. The same contraceptives are not in general use in any Western country. 
+	
+	Funds are much harder to come by for, say, water-borne diseases which account for nearly 80 per cent of India’s public health problems and claim millions of lives each year. These include diarrhoea, dysentery, typhoid, cholera and infectious hepatitis. Water-related diseases, including malaria, take their toll in tens of thousands of human lives annually. 
+	
+	Yet, every third human being in the world without safe and adequate water supply is an Indian. Every fourth child on the globe who dies of diarrhoea is an Indian. Every third person in the world with leprosy is an Indian. Every fourth being on the planet dying of water-borne or water-related diseases is an Indian. Of the over sixteen million tuberculosis cases that exist at any time world-wide, 12.7 million are in India. Tens of millions of Indians suffer from malnutrition. It lays their systems open to an array of fatal ailments. Yet, official expenditure on nutrition is less than one per cent of GNP.
 
-*****
+- Never in history have Indian governments spent more than 1.8 per cent of GDP on health. The current figure of public spending is 1.3 per cent of GDP. Nicaragua spends 6.7, Brazil 2.8 and China 2.1 per cent. Among the advanced industrial nations, Sweden spends 7.9 and the United States 5.6 per cent. When newly independent, India committed 5 per cent of the outlay of her first five year plan to health. In a nation emerging from over a century of colonial rule, exploitation, famines and mass deaths from disease, that was and is a vital step. But this has come down to 1.7 per cent by the eighth five year plan, falling with each successive plan. In terms of health infrastructures, countries like China and Sri Lanka are way ahead of India.  As much as 80 per cent of people’s health costs are personally, individually borne. Only 20 per cent of hospital beds are in rural areas where 80 per cent of Indians live.
 
-In any case, looking too closely at India’s real health problems has this catch. It raises troubling questions about the West’s own role in promoting certain models and enforcing these on developing countries via pressure from funding institutions. 
-In 1992, USAID gave India US $ 325 million (Rs. 800 crores) to be spent solely on population control in the state of Uttar Pradesh. This programme has serious implications. One is that hazardous contraceptives like Norplant will be pushed onto very poof rural women who have little or no access to proper health care. The same contraceptives are not in general use in any Western country. 
-Funds are much harder to come by for, say, water-borne diseases which account for nearly 80 per cent of India’s public health problems and claim millions of lives each year. These include diarrhoea, dysentery, typhoid, cholera and infectious hepatitis. Water-related diseases, including malaria, take their toll in tens of thousands of human lives annually. 
-Yet, every third human being in the world without safe and adequate water supply is an Indian. Every fourth child on the globe who dies of diarrhoea is an Indian. Every third person in the world with leprosy is an Indian. Every fourth being on the planet dying of water-borne or water-related diseases is an Indian. Of the over sixteen million tuberculosis cases that exist at any time world-wide, 12.7 million are in India. Tens of millions of Indians suffer from malnutrition. It lays their systems open to an array of fatal ailments. Yet, official expenditure on nutrition is less than one per cent of GNP.
+- ‘Trickle down theory’; Take it away from the poor, give it to the rich, then watch with bated breath to see how much of it trickles down to the poor.
 
-*****
+---
 
-Never in history have Indian governments spent more than 1.8 per cent of GDP on health. The current figure of public spending is 1.3 per cent of GDP. Nicaragua spends 6.7, Brazil 2.8 and China 2.1 per cent. Among the advanced industrial nations, Sweden spends 7.9 and the United States 5.6 per cent. When newly independent, India committed 5 per cent of the outlay of her first five year plan to health. In a nation emerging from over a century of colonial rule, exploitation, famines and mass deaths from disease, that was and is a vital step. But this has come down to 1.7 per cent by the eighth five year plan, falling with each successive plan. In terms of health infrastructures, countries like China and Sri Lanka are way ahead of India. 
-As much as 80 per cent of people’s health costs are personally, individually borne. Only 20 per cent of hospital beds are in rural areas where 80 per cent of Indians live.
+##### Education
 
-*****
+- In a modern polity, where the base-born have votes, the elite act differently. Say all the right things. But deny access. Sometimes, mass pressures force concessions. Bend a little. After a while, it’s back to business as usual. As one writer has put it: When the poor get literate and educated, the rich lose their palanquin bearers.
+	So dalits and adivasis still have it worst. Fewer SC/ST students are enrolled in the first place. Next, their drop-out rates are higher. Of non-SC/ST students, nearly sixty of every hunderd enrolled drop out in classes VI - VIII. For dalits, that figure is seventy and for tribals, eighty. So those most needing an education are largely filtered out by class VIII.
 
-‘trickle down theory’. (Take it away from the poor, give it to the rich, then watch with bated breath to see how much of it trickles down to the poor.)
+- For a government trying to dump its duties towards its children, literacy has another goal. You can, over time, peddle it as a substitute for education. Making a virtue of literacy is one thing. Making it a tool to further reduce government involvement in education is another. In making people literate, the government is not doing them a favour. Nor is it doing them one in sending children to school. It is merely pursuing a duty—and very badly at that. Literacy is a vital social tool. It is not an education. The literacy movement has scored great successes in parts of the country. Often, it has done this in the face of official barriers. Its best moments have come when people in target areas have shaped it to their own reality, their own needs. That usually frightens governments. Where literacy has connected with people’s lives, the attendance in schools has actually gone up.
 
-*****
+	But the Indian state has had other questions on its mind for some time. Such as, how to pass the buck on education. How to jettison that duty. This has spawned one of the great rackets of our time. In polite company, we call it Non-Formal Education (NFE). Always around in some guise, it gained great strength with the ‘New Education Policy’ (NEP) of 1985.
 
-education
+	The elite are silent on why things can’t be changed by asserting people’s rights. If what’s in the classroom is not ‘relevant’ to the lives of millions of Indians, why not make it relevant? Why destroy the classroom? The hidden text to NFE and its variants was and is: universal education is no longer a goal. All children do not have the same rights to a decent education. That is now, clearly, the line of the Indian elite as a whole.
+It is possible there have been a couple of ‘model’ NFE schemes. Everybody seems to know of one. Yet, few show any verifiable results. NFE creates a clear-cut caste system in education. One type of schooling for the children of the poor, another for the rich. It’s instructive that all those who plug, plan, and get paid to run NFE went through a formal system. Their own children mostly go to very, very formal schools.
 
-*****
+	It’s been a lucrative scam. Whole lobbies have received crores of rupees over years to take education to the poor. Results: zero. If NFE was such a wonderful, radical concept, why not scrap all the schools there are and subject all children to it? That would hurt the beautiful people.
 
-In a modern polity, where the base-born have votes, the elite act differently. Say all the right things. But deny access. Sometimes, mass pressures force concessions. Bend a little. After a while, it’s back to business as usual. As one writer has put it: When the poor get literate and educated, the rich lose their palanquin bearers.
+	A tribal activist in Petlawad puts it this way: ‘If both adivasi and non-adivasi children are educated on tribal funds, there can be little objection to it. But the tragedy is that adivasi children are not getting educated. Yet, tribal funds run the entire schooling system. In effect, adivasis pay for the education of some of their oppressors.’ ‘We have a system,’ says the tribal welfare department officer, ‘with an in-built bias against the tribal child. And that is not just the educational system. With no emphasis on tackling the poverty and backwardness of the tribals, the exercise becomes a sham. You can even blame it on the victims. The schooling system, despite many stupid experiments, is not designed to retain tribal children. And the socio-economic system drives them away totally, though they may be keen on gaining an education. It’s not just the funds. It’s the lack of commitment.’
 
- So dalits and adivasis still have it worst. Fewer SC/ST students are enrolled in the first place. Next, their drop-out rates are higher. Of non-SC/ST students, nearly sixty of every hunderd enrolled drop out in classes VI - VIII. For dalits, that figure is seventy and for tribals, eighty. So those most needing an education are largely filtered out by class VIII.
+---
 
-*****
+##### Displacement
 
-For a government trying to dump its duties towards its children, literacy has another goal. You can, over time, peddle it as a substitute for education.
+- Twenty-six million displaced Indians. These are bottomline figures. The government accepts a national figure of over fifteen million (up to 1985) arising from ‘development-related displacement’. That’s the jargon for people losing their homes and lands to projects they may never have asked for. The estimates leave out many groups who are affected but do not own land. The rehabilitation schemes don’t cover landless labourers, fisherfolk and artisans. They ignore millions outside the designated submergence zones or ‘project areas’ hit by this vision of development. People whose life support systems are crushed by projects. Or families in locations affected by catchment area treatment. Or those losing ground to compensatory afforestation.
 
- Making a virtue of literacy is one thing. Making it a tool to further reduce government involvement in education is another. In making people literate, the government is not doing them a favour. Nor is it doing them one in sending children to school. It is merely pursuing a duty—and very badly at that. Literacy is a vital social tool. It is not an education.
+	No data capture the agony of the ‘resource-dispossessed’. These are people who endure displacement without being evicted. Peasants losing their land to moneylenders are not seen as victims of displacement. Still, they face all its effects. No estimates measure displacement on the urban periphery. People tossed out of their homes to make way for new urban colonies do not figure in any calculations.
 
-*****
+- In official theology, this is ‘the price of development’. You want to make progress, you have to sacrifice. But who sacrifices? And for whom? Why do the least privileged pay such a huge share of the ‘price’? What part of this ‘price’ have the better-off ever borne?  Tribals make up just 8 per cent of our population. Yet, as Walter Fernandes of the Indian Social Institute points out, they account for ‘more than 40 per cent of the displaced persons of all projects’. The stories of displaced dalits are, in some ways, even less known. Records in such cases either do not exist or are unreliable. The barriers to throwing them out are less. There are also fewer hurdles in the way of those—such as contractors—using the period of turmoil that projects bring to grab their land. 
 
-The literacy movement has scored great successes in parts of the country. Often, it has done this in the face of official barriers. Its best moments have come when people in target areas have shaped it to their own reality, their own needs. That usually frightens governments.
+	Apart from being marginalised, displaced groups suffer a loss of food security. Besides, they nearly always record increased levels of illness and disease. Beyond this, they are hit by a loss of access to common property such as water and grazing grounds. Networks and assets that are a great strength of the affected peoples get dismantled.
 
-*****
+- So what is India’s rehabilitation policy about? Its title tells the story: National Policy for Rehabilitation of Persons Displaced as a Consequence of Acquisition of Land. It’s about land. Yet, that does not mean those who give up land for projects get a fair deal
 
-Where literacy has connected with people’s lives, the attendance in schools has actually gone up.
+	The land was taken without their consent. Compensation is often based on the patta showing ownership of the land. In tribal communities with traditions of common ownership, people held large tracts without pattas for thousands of years. That they own the land is not in dispute. But they get no compensation when the land is attached because validation is based on the patta.
 
-*****
+	Acquisitions of land are made in the ‘national interest’. That, at once, places them beyond question. Who constitutes the nation? Only the elite? Or do the hundreds of millions of poor in India also make up the nation? Are their interests never identified with national interest? Or is there more than one nation? That is a question you often run up against in some of India’s poorest areas. Areas where extremely poor people go into destitution making way for firing ranges, jet fighter plants, coal mines, power projects, dams, sanctuaries, prawn and shrimp farms, even poultry farms. If the costs they bear are the ‘price’ of development, then the rest of the ‘nation’ is having one endless free lunch.
 
-But the Indian state has had other questions on its mind for some time. Such as, how to pass the buck on education. How to jettison that duty. This has spawned one of the great rackets of our time. In polite company, we call it Non-Formal Education (NFE). Always around in some guise, it gained great strength with the ‘New Education Policy’ (NEP) of 1985.
+- Caste certificates are related to or based on domicile certificates. These, in turn, are linked to land holdings. Without their land, the residents of Chikapar found domicile certificates hard to come by. That meant it was also harder to obtain caste certificates proving their adivasi or harijan identities. This, in turn, further damaged their chances of finding jobs.
 
-*****
+- Physical displacement is not the only action leading to destruction of a people’s livelihood and culture. Cutting them off from their most vital resources can produce those results just as well, for eg: cutting off the Koya tribals in Orissa from their access to bamboo. They were displaced only in the sense of being barred from a crucial resource. Yet, they have taken a beating they are unable to cope with. They are the bees banned from honey. Only, these bees have no sting
 
-The elite are silent on why things can’t be changed by asserting people’s rights. If what’s in the classroom is not ‘relevant’ to the lives of millions of Indians, why not make it relevant? Why destroy the classroom? The hidden text to NFE and its variants was and is: universal education is no longer a goal. All children do not have the same rights to a decent education. That is now, clearly, the line of the Indian elite as a whole.
+---
 
- It is possible there have been a couple of ‘model’ NFE schemes. Everybody seems to know of one. Yet, few show any verifiable results. NFE creates a clear-cut caste system in education. One type of schooling for the children of the poor, another for the rich. It’s instructive that all those who plug, plan, and get paid to run NFE went through a formal system. Their own children mostly go to very, very formal schools.
+##### Survival strategies - Usury, debt and the rural Indian moneylenders
 
- It’s been a lucrative scam. Whole lobbies have received crores of rupees over years to take education to the poor. Results: zero. If NFE was such a wonderful, radical concept, why not scrap all the schools there are and subject all children to it? That would hurt the beautiful people.
+- ‘Roads here,’ says Mathur, ‘are a sign of exploitation, not development.’ He has a point. Paharias closer to the plains are more in the grip of mahajans than those in the villages on the hill tops. Such ‘development schemes’ as have come here have never involved the Paharias themselves in decision-making. One experiment saw many Paharia families being given two cows each. The Paharias do not consume milk products either, but no one knew this. What they do consume is beef and quite a few of the ‘loans’ were thus consumed. Others tried using the cows as draught animals, leading to their death in the difficult terrain. Bullied by corrupt officials, the Paharias retreat further into the mahajan’s grip. Madhusingh, a politically aware Paharia, sums it up simply. ‘Officers are a transient reality. The mahajan is a permanent reality.’
 
-*****
+- Even allowing that there are no big landlords in this district, land reform in Pudukkottai has mostly been a fraud. (The same is largely true of the rest of Tamil Nadu.)  As early as 1972, an official report concluded that the state had taken into its possession less than two per cent of 21 lakh acres declared surplus in Tamil Nadu. Worse, successive governments distributed a total of just about two-thirds of that two per cent of land. In Pudukkottai, an official study done in 1992 speaks of families in villages like Sirumarudhur which own land in six different names. It also records instances of another kind of crime. Even where surplus land was now legally in the possession of the peasants, the old landlord continued to extract rent from them. In retrospect, says the report, ‘many of the assignees were lackeys of the surplus landholders. And (in some cases) land reform remains only on paper.’
 
-A tribal activist in Petlawad puts it this way: ‘If both adivasi and non-adivasi children are educated on tribal funds, there can be little objection to it. But the tragedy is that adivasi children are not getting educated. Yet, tribal funds run the entire schooling system. In effect, adivasis pay for the education of some of their oppressors.’
-
-*****
-
-‘We have a system,’ says the tribal welfare department officer, ‘with an in-built bias against the tribal child. And that is not just the educational system. With no emphasis on tackling the poverty and backwardness of the tribals, the exercise becomes a sham. You can even blame it on the victims. The schooling system, despite many stupid experiments, is not designed to retain tribal children. And the socio-economic system drives them away totally, though they may be keen on gaining an education. It’s not just the funds. It’s the lack of commitment.’
-
-*****
-
-displaced
-
-*****
-
-That’s around twenty-six million Indians.
-
- These are bottomline figures. The government accepts a national figure of over fifteen million (up to 1985) arising from ‘development-related displacement’. That’s the jargon for people losing their homes and lands to projects they may never have asked for.
-
-*****
-
-the estimates leave out many groups who are affected but do not own land. The rehabilitation schemes don’t cover landless labourers, fisherfolk and artisans. They ignore millions outside the designated submergence zones or ‘project areas’ hit by this vision of development. People whose life support systems are crushed by projects. Or families in locations affected by catchment area treatment. Or those losing ground to compensatory afforestatio
-
-*****
-
-No data capture the agony of the ‘resource-dispossessed’. These are people who endure displacement without being evicted
-
-*****
-
-Peasants losing their land to moneylenders are not seen as victims of displacement. Still, they face all its effects. No estimates measure displacement on the urban periphery. People tossed out of their homes to make way for new urban colonies do not figure in any calculations.
-
-*****
-
-In official theology, this is ‘the price of development’. You want to make progress, you have to sacrifice.
-
- But who sacrifices? And for whom? Why do the least privileged pay such a huge share of the ‘price’? What part of this ‘price’ have the better-off ever borne? 
-Tribals make up just 8 per cent of our population. Yet, as Walter Fernandes of the Indian Social Institute points out, they account for ‘more than 40 per cent of the displaced persons of all projects’.
-
-*****
-
-The stories of displaced dalits are, in some ways, even less known.
-
-*****
-
-Records in such cases either do not exist or are unreliable
-
-*****
-
-The barriers to throwing them out are less. There are also fewer hurdles in the way of those—such as contractors—using the period of turmoil that projects bring to grab their land.
-
-*****
-
-apart from being marginalised, displaced groups suffer a loss of food security. Besides, they nearly always record increased levels of illness and disease. Beyond this, they are hit by a loss of access to common property such as water and grazing grounds.
-
-*****
-
-networks and assets that are a great strength of the affected peoples get dismantled.
-
-*****
-
-So what is India’s rehabilitation policy about? Its title tells the story: National Policy for Rehabilitation of Persons Displaced as a Consequence of Acquisition of Land.
-
- It’s about land. Yet, that does not mean those who give up land for projects get a fair deal
-
-*****
-
-The land was taken without their consent. Compensation is often based on the patta showing ownership of the land. In tribal communities with traditions of common ownership, people held large tracts without pattas for thousands of years. That they own the land is not in dispute. But they get no compensation when the land is attached because validation is based on the patta.
-
-*****
-
-Acquisitions of land are made in the ‘national interest’. That, at once, places them beyond question
-
-*****
-
-Who constitutes the nation? Only the elite? Or do the hundreds of millions of poor in India also make up the nation? Are their interests never identified with national interest?
-
- Or is there more than one nation?
-
-*****
-
-Who constitutes the nation? Only the elite? Or do the hundreds of millions of poor in India also make up the nation? Are their interests never identified with national interest?
-
- Or is there more than one nation?
-
- That is a question you often run up against in some of India’s poorest areas. Areas where extremely poor people go into destitution making way for firing ranges, jet fighter plants, coal mines, power projects, dams, sanctuaries, prawn and shrimp farms, even poultry farms. If the costs they bear are the ‘price’ of development, then the rest of the ‘nation’ is having one endless free lunch.
-
-*****
-
-Caste certificates are related to or based on domicile certificates. These, in turn, are linked to land holdings. Without their land, the residents of Chikapar found domicile certificates hard to come by. That meant it was also harder to obtain caste certificates proving their adivasi or harijan identities. This, in turn, further damaged their chances of finding jobs.
-
-*****
-
-the Koya tribe
---
-Orissa
-
-*****
-
-Few humans have interacted so imaginatively, so intensely, and yet, so gently with a single creation of nature as have the Koya tribals with bamboo.
-
-*****
-
-Their relationship with bamboo, far from being a conquest of nature, is a romance with nature
-
-*****
-
-In recent years, forest laws removing their access to that material have denied them this oxygen. However, big corporates (via the Orissa Forest Development Corporation) have gained mostly unchecked access.
-
-*****
-
-physical displacement is not the only action leading to destruction of a people’s livelihood and culture. Cutting them off from their most vital resources can produce those results just as well.
-
-*****
-
-The government did not physically shift the Koya villages. They were displaced only in the sense of being barred from a crucial resource. Yet, they have taken a beating they are unable to cope with. They are the bees banned from honey.
-
- Only, these bees have no sting
-
-*****
-
-survival strategies
-
-*****
-
-‘Roads here,’ says Mathur, ‘are a sign of exploitation, not development.’ He has a point. Paharias closer to the plains are more in the grip of mahajans than those in the villages on the hill tops. 
-Such ‘development schemes’ as have come here have never involved the Paharias themselves in decision-making. One experiment saw many Paharia families being given two cows each
-
-*****
-
-The Paharias do not consume milk products either, but no one knew this. What they do consume is beef and quite a few of the ‘loans’ were thus consumed. Others tried using the cows as draught animals, leading to their death in the difficult terrain.
-
-*****
-
-Bullied by corrupt officials, the Paharias retreat further into the mahajan’s grip. Madhusingh, a politically aware Paharia, sums it up simply. ‘Officers are a transient reality. The mahajan is a permanent reality.’
-
-*****
-
-Even allowing that there are no big landlords in this district, land reform in Pudukkottai has mostly been a fraud. (The same is largely true of the rest of Tamil Nadu.)
-
- As early as 1972, an official report concluded that the state had taken into its possession less than two per cent of 21 lakh acres declared surplus in Tamil Nadu. Worse, successive governments distributed a total of just about two-thirds of that two per cent of land.
-
-*****
-
-In Pudukkottai, an official study done in 1992 speaks of families in villages like Sirumarudhur which own land in six different names. It also records instances of another kind of crime. Even where surplus land was now legally in the possession of the peasants, the old landlord continued to extract rent from them.
-
- In retrospect, says the report, ‘many of the assignees were lackeys of the surplus landholders. And (in some cases) land reform remains only on paper.’
-
-*****
-
-Usury, debt and the rural Indian MONEYLENDERS
-
-*****
-
-the Integrated Rural Development Programme (IRDP) had covered millions of households with loan-cum-subsidies worth hundreds of crores of rupees. Many soft credit schemes had covered the rural poor. Loans from banks and other formal sources had begun to account for the major share of rural debt. From this, it was possible to infer that dependence on private moneylenders was swiftly falling. Better still, the use of physical violence to recover loans had declined.
-
-*****
-
-There are many strata within the poor, and different levels of poverty. The lower down the ladder you are, the less likely it is that such credit will cover your family. The Reserve Bank of India pointed this out as late as 1987. True, institutional sources account for 60 per cent of cash debt in India. But they account for as little as six per cent of the debt of households owning assets worth less than Rs. 1,000.
-
-*****
-
-despite the relief the IRDP has brought some poor families, it has also seen enormous misdirection and leakage. The findings of the Project Evaluation Organisation of the Planning Commission show us that.
+- The Integrated Rural Development Programme (IRDP) had covered millions of households with loan-cum-subsidies worth hundreds of crores of rupees. Many soft credit schemes had covered the rural poor. Loans from banks and other formal sources had begun to account for the major share of rural debt. From this, it was possible to infer that dependence on private moneylenders was swiftly falling. Better still, the use of physical violence to recover loans had declined. There are many strata within the poor, and different levels of poverty. The lower down the ladder you are, the less likely it is that such credit will cover your family. The Reserve Bank of India pointed this out as late as 1987. True, institutional sources account for 60 per cent of cash debt in India. But they account for as little as six per cent of the debt of households owning assets worth less than Rs. 1,000. Despite the relief the IRDP has brought some poor families, it has also seen enormous misdirection and leakage. The findings of the Project Evaluation Organisation of the Planning Commission show us that.
 
 *****
 
