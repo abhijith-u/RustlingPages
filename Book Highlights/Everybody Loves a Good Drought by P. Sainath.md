@@ -51,7 +51,7 @@ It is possible there have been a couple of ‘model’ NFE schemes. Everybody se
 
 - Caste certificates are related to or based on domicile certificates. These, in turn, are linked to land holdings. Without their land, the residents of Chikapar found domicile certificates hard to come by. That meant it was also harder to obtain caste certificates proving their adivasi or harijan identities. This, in turn, further damaged their chances of finding jobs.
 
-- Physical displacement is not the only action leading to destruction of a people’s livelihood and culture. Cutting them off from their most vital resources can produce those results just as well, for eg: cutting off the Koya tribals in Orissa from their access to bamboo. They were displaced only in the sense of being barred from a crucial resource. Yet, they have taken a beating they are unable to cope with. They are the bees banned from honey. Only, these bees have no sting
+- Physical displacement is not the only action leading to destruction of a people’s livelihood and culture. Cutting them off from their most vital resources can produce those results just as well, for eg: cutting off the Koya tribals in Odisha from their access to bamboo. They were displaced only in the sense of being barred from a crucial resource. Yet, they have taken a beating they are unable to cope with. They are the bees banned from honey. Only, these bees have no sting
 
 ---
 
@@ -61,399 +61,94 @@ It is possible there have been a couple of ‘model’ NFE schemes. Everybody se
 
 - Even allowing that there are no big landlords in this district, land reform in Pudukkottai has mostly been a fraud. (The same is largely true of the rest of Tamil Nadu.)  As early as 1972, an official report concluded that the state had taken into its possession less than two per cent of 21 lakh acres declared surplus in Tamil Nadu. Worse, successive governments distributed a total of just about two-thirds of that two per cent of land. In Pudukkottai, an official study done in 1992 speaks of families in villages like Sirumarudhur which own land in six different names. It also records instances of another kind of crime. Even where surplus land was now legally in the possession of the peasants, the old landlord continued to extract rent from them. In retrospect, says the report, ‘many of the assignees were lackeys of the surplus landholders. And (in some cases) land reform remains only on paper.’
 
-- The Integrated Rural Development Programme (IRDP) had covered millions of households with loan-cum-subsidies worth hundreds of crores of rupees. Many soft credit schemes had covered the rural poor. Loans from banks and other formal sources had begun to account for the major share of rural debt. From this, it was possible to infer that dependence on private moneylenders was swiftly falling. Better still, the use of physical violence to recover loans had declined. There are many strata within the poor, and different levels of poverty. The lower down the ladder you are, the less likely it is that such credit will cover your family. The Reserve Bank of India pointed this out as late as 1987. True, institutional sources account for 60 per cent of cash debt in India. But they account for as little as six per cent of the debt of households owning assets worth less than Rs. 1,000. Despite the relief the IRDP has brought some poor families, it has also seen enormous misdirection and leakage. The findings of the Project Evaluation Organisation of the Planning Commission show us that.
+- The Integrated Rural Development Programme (IRDP) had covered millions of households with loan-cum-subsidies worth hundreds of crores of rupees. Many soft credit schemes had covered the rural poor. Loans from banks and other formal sources had begun to account for the major share of rural debt. From this, it was possible to infer that dependence on private moneylenders was swiftly falling. 
 
-*****
+	There are many strata within the poor, and different levels of poverty. The lower down the ladder you are, the less likely it is that such credit will cover your family. The Reserve Bank of India pointed this out as late as 1987. True, institutional sources account for 60 per cent of cash debt in India. But they account for as little as six per cent of the debt of households owning assets worth less than Rs. 1,000. Despite the relief the IRDP has brought some poor families, it has also seen enormous misdirection and leakage. The findings of the Project Evaluation Organisation of the Planning Commission show us that. Close to a fifth of the sum used for wrong ends went to bodies linked with urban-based corporates.
 
-Close to a fifth of the sum used for wrong ends went to bodies linked with urban-based corporates.
+	This is not to say that IRDP loans have never helped poor people. Just that, within the existing political and social framework, such help is likely to be marginal. Seepage, however, is likely to be great. That can only hurt those who really need state credit. Even rural banking at its best ran into the reality of village power structures. Many of the ‘gram sabhas’ involved in identifying beneficiaries did much damage. In Palamau, the IRDP was given a new and creative name: Isko Rupiya Dena Padega (we have to pay for this).
 
-*****
+	Further, people have been given cows or sheep as part of these schemes. No one checks to see if they can cope with the costs of feeding those animals. Very often, poor beneficiaries I met had lost the animals to disease or simply could not afford to feed them, leading to their death. They had even paid insurance premiums on these livestock. Some of the poorest people in the country then made repayments on loans they had never sought.
 
-This is not to say that IRDP loans have never helped poor people. Just that, within the existing political and social framework, such help is likely to be marginal. Seepage, however, is likely to be great. That can only hurt those who really need state credit.
+- And that brings up this point: the issue does not end with heaping denunciation on usurers. Vicious as it often is, usury is linked to the collapse of formal rural credit. It fills a gap. In doing so, it devastates the lives of many. That is crucial. Beyond a point, the peasant’s ability to cope is so thoroughly crushed that it matters very little whether the annual interest is 120 or 380 per cent. Moneylending creates servility and dependence. The sanctity of repayment, no matter how deceitfully the debt was contrived and how cruel the costs, has been drilled into Indian consciousness
 
-*****
+	In Nuapada (Odisha), the moneylenders have understood the special characteristics of each area and community. They have set up their operations on that basis. They decide what will be the terms of production and extraction from block to block. So in Khariar, moneylenders take the land of the peasants. In Bhoden, they extract their produce. And, in Sinapali, command their labour virtually free. Kalahandi in Odisha produces more food per person than both Odisha and India as a whole do. But its own inhabitants consume only 25 per cent of that food. The rest goes out of the region through networks of merchant-moneylenders.
 
-even rural banking at its best ran into the reality of village power structures.
+- Vinoba Bhave’s *bhoodan* movement's belief was that a direct plea to the hearts of the landlords could work. If it did, they would, on their own, give up some of their surplus land and these plots would go to landless peasants or marginal farmers. Most of those holdings were illegal, anyway. One part of the idea was that voluntarism would replace militant, often violent, land struggles.
 
-*****
+	Things didn’t work out quite the way he thought they would. The very landlords who donated land in fact utilised it to acquire more illegal holdings. Several landowners who donated land never really parted with it in practice. Some gifted land only to take it back not very much later. Some ‘donated’ lands that never belonged to them. A few claimed ‘compensation’ for the trees, fruit and bushes on the land they were ‘giving up’. In a few cases, the unhappy ‘donor’ is a tiny farmer, who would own an acre or less. His land, is likely to have been gifted away by rivals manipulating records. Some landlords re-seized the ‘donated’ plots and threw out their ‘beneficiaries’.
 
-many of the ‘gram sabhas’ involved in identifying beneficiaries did much damage.
+- In the early years after abolition of zamindari, some landlords came up with a smart move. They vested the same surplus land with both bhoodan and the government. That led to massive confusion, with both those entities trying to take control of the land. The lengthy litigation that followed while each fought the other, enabled the landlords to keep the land much longer.
 
-*****
+---
 
-was in Palamau that I first heard the IRDP given a new and creative name: Isko Rupiya Dena Padega (we have to pay for this).
+##### Water problems, real and rigged 
 
-*****
+- Drought relief, almost equally beyond question, is rural India’s biggest growth industry. Often, there is little relation between the two. Relief can go to regions that get lots of rainfall. Even where it goes to scarcity areas, those most in need seldom benefit from it. The poor in such regions understand this. That’s why some of them call drought relief *teesra fasl* (the third crop). Only, they are not the ones who harvest it. ‘Often,’ says a senior official, ‘there is more money for relief than for development. That suits a lot of people. It reaps a rich harvest for the local elites.
 
-Further, people have been given cows or sheep as part of these schemes. No one checks to see if they can cope with the costs of feeding those animals. Very often, poor beneficiaries I met had lost the animals to disease or simply could not afford to feed them, leading to their death. They had even paid insurance premiums on these livestock.
+	A great deal of drought ‘relief goes into contracts handed over to private parties. These are to lay roads, dig wells, send out water tankers, build bridges, repair tanks—the works. The charm of this scam is that it is largely ‘legal’. And it has soul. It’s all in a good cause. The tragedy, of course, is that it rarely addresses the real problems of drought and water scarcity.
 
-*****
+	In theory, drought-prone blocks come under a central scheme known as the Drought-Prone Areas Programme (DPAP). But bringing blocks into the DPAP is now a purely political decision. The same blocks then get money coming in under the employment assurance scheme (EAS), anti-desertification projects, drinking water missions and a host of other schemes. Well, some people do benefit.
 
-Some of the poorest people in the country then made repayments on loans they had never sought.
+- Water resources experts and administrators would largely agree that, barring problems of erratic timing and spread, most Indian districts could get by on around 800 mm of rainfall annually. We have several districts in India that have an abundance of rainfall—but where one section, the poor, can suffer acute drought. That happens when available water resources are colonised by the powerful. Further, the poor are never consulted or asked to participate in designing the ‘programmes’ the anti-drought funds bring. Governments kid themselves that by throwing money at such regions, the small fish, who have big votes, can be pacified. In reality, the lion’s share of funds going there is again appropriated by the powerful.
 
-*****
+- Drought is a complex phenomenon. You can have an agricultural drought, for instance, even when there is no meteorological drought. That is, you can have adequate rainfall and still have crop failure. Or you can have hydrological drought, with marked depletion of rivers, streams, springs and fall in groundwater levels. The reasons for these are well known but seldom addressed. It is so much nicer to just put the whole thing down to nature’s vagaries. Parched land is not necessarily a symbol of drought. You can have it in very wet places if you drain a pond. And you can have an acute water shortage in seemingly green areas. But parched land makes better copy and pictures. Every editor knows that drought means parched land and, hopefully, pictures of emaciated people. That’s what ‘human interest’ is about, isn’t it? ‘Drought’ and ‘famine’. Obviously, these two mean very different things. But the word ‘famine’ is more alarmist and makes better copy.
 
-And that brings up this point: the issue does not end with heaping denunciation on usurers. Vicious as it often is, usury is linked to the collapse of formal rural credit. It fills a gap. In doing so, it devastates the lives of many. That is crucial.
+- Conflicts arising from man-made drought are on the rise. Deforestation does enormous damage. Villagers are increasingly losing control over common water resources. The destruction of traditional irrigation systems is gaining speed. A process of privatisation of water resources is apparent in most of the real drought areas. There are now two kinds of drought: the real and the rigged. Both can be underway at the same time, in the same place. The press has viewed drought and scarcity as events. And the belief that only events make news, not processes, distorts understanding. Some of the best reports on poverty suffer from trying to dramatise it as an event. The real drama is in the process. In the causes. Deforestation has much to do with drought. But being a process, it becomes a ‘feature’. The reality? The combined investment in all development projects in Odisha since independence is eclipsed by the commercial value of renewable timber and forests lost in making way for them.
 
-*****
+- So many other factors get nowhere near the attention they need. The destruction of Kalahandi’s traditional irrigation systems, for one. And flawed development strategies that hurt thousands, for another. Some of these end up spurring the migrations they seek to curb. In Tamil Nadu, Ramnad has always had one of the highest levels of long-term migration. As in Pudukkottai, the sex ratio is favourable to women—contrary to the state and national trends. This is not because women here enjoy a higher status, but due to drought-driven migration.
 
-Beyond a point, the peasant’s ability to cope is so thoroughly crushed that it matters very little whether the annual interest is 120 or 380 per cent.
+	Also, vicious usury that sees people in distress selling paddy at less than half the official support price. And a skewered landholding pattern with ever growing alienation. The long-term effect that persistent water scarcity has had here is its role in the loss of land by the peasants. In many parts, the development process has hurt poor people. For instance, the coming of borewells some years ago meant that the small farmers of the Muthuraja colony of Kovilpatti lost most of their lands. The borewell owners were richer and higher caste farmers of the next hamlet. And they used their new weapon to deadly effect.
 
-*****
+	In Pudukkottai district, the first effect was the drying of the traditional dug-wells of the small farmers. The next step was for the borewell owners to sell water to these farmers, or to deny it to them at crucial moments, ravaging their crop and often entrapping them in debt as a consequence. The third step was to demand a part of their produce. The fourth was to dictate what they would produce. The fifth was to move from exploiting their dependence on water to acquiring their lands. A farcical land reform and unviable land units are also big factors. Yet, water or the lack of it deeply influences the lives of lakhs of people in this district.
 
-Moneylending creates servility and dependence. The sanctity of repayment, no matter how deceitfully the debt was contrived and how cruel the costs, has been drilled into Indian consciousness
+- Palamau (Bihar) gets as much as 1,200-1,230 mm of rain in a normal year, which is pretty decent. In its worst year in recent history, it received 630 mm. That’s more than what a district like Ramnad in Tamil Nadu gets in some ‘normal’ years. Yet, drought causes far more devastation in Palamau than in Ramnad. Many areas of India face droughts that do not turn into famines or near-famine conditions. But in Palamau, the distance between drought and famine or near-famine conditions seems to be much shorter. This means wrong decisions can extract very high costs. The district still enjoys decent forest cover. Officially 40 per cent and, unofficially, around 25 per cent. Compare that with Ramnad’s 1.06 per cent forest cover.
 
-*****
+	Then what is it that goes wrong with Palamau when crisis strikes? Palamau is presently not equipped to conserve the water it receives. Land-grab over the decades has removed the one cushion of many poor people—their land. For the landless, it’s worse. There is a large seasonal migration of agricultural labourers from Palamau each year. And those displaced by mining or ‘development’ projects have neither land nor employment. Corruption at many levels punches holes in the relief efforts that follow a crisis. 
 
-Can this incredible system be broken or even tamed? ‘Yes,’ says R. Gnanavasalam, district secretary of the Tamil Nadu Kisan Sabha. ‘The state should create a proper market as in Guntur and intervene to assure the producer a minimum price of Rs. 25 per kg. Besides, the government should have a weighing system that checks and certifies all bags as they enter town. Further, we need a chilli oil factory here to exploit possibilities that are now left to centres outside the district. And, of course, credit facilities for farmers.’
---
-Ramnad chilli farmers usury
+	Drought and famine in Palamau grab the headlines because they are spectacular. But they are, still, events that flow from a number of less spectacular processes, as political activist Narendra Chaubey points out. Among those are deforestation, land-grab and poor water harvesting. Eroding infrastructure, shrinking funds and stagnating agriculture have made things worse. Growing unemployment, decaying relief and distribution systems, and rising corruption have not helped. A lack of land reform seems to be the large canvas on which the other factors fit in.
 
-*****
+---
 
-The upper castes forced harijans to dress according to their status—meaning poorly. That goes back in history. In the 1850s, the British governor of Madras tried to change this ‘dress code’. He ruled that harijan women converts to Christianity could cover their breasts and shoulders. Till then, the rules set by the higher castes did not permit them to do so. In the 1950s and ’60s, this led to a number of the Chakkiliayans converting to Christianity. But that has not helped them much.
+##### When the poor fight back
 
-*****
+- Too often, covering the poor for the media gets reduced to romanticising the role of saintly individuals working among them. Often, these heroes are from the same class and urban backgrounds as the journalists covering them. A latter-day version of the noble missionary working among the heathen savages. Far more sophisticated, perhaps, but not too different at some levels. In all this, however, the role of the people themselves tends to get obscured, as do the political trends shaping within them. For their battles are most effective where they are organised. One of the reasons the poorest districts are the way they are is—the pathetic shape of organised political movements within them. Were they better organised, they would have faced a lot of problems more firmly. The poor would have wrested a better deal much earlier.
 
-Nuapada, the moneylenders have understood the special characteristics of each area and community. They have set up their operations on that basis. They decide what will be the terms of production and extraction from block to block. So in Khariar, moneylenders take the land of the peasants. In Bhoden, they extract their produce. And, in Sinapali, command their labour virtually free.
---
-Orissa
+- The literacy movement has been most successful where such activists were either directly from the people in a region or shaped by their movements. People politically, culturally and class-wise close to the poor and, importantly, who learned from them. Or even village-based NGOs run on local will and not on the whims of external funding agencies. Of the battles these stories record, some might end in failure. Mainly because of the lack of sustained and organised democratic politics in those areas. Yet, they also argue hope.
 
-*****
+- Pudukkottai has 350 operational stone quarries. In a radical move in 1991, about 170 of these were leased out at nominal rates to extremely poor women from the scheduled castes and the most backward castes. The then district collector, Sheela Rani Chunkath—virtually a legend among the poor here—pulled this off under the Development of Women and Children in Rural Areas (DWCRA) scheme. That’s a government sponsored anti-poverty programme. Almost all registered themselves as societies and not as cooperatives. Why not as cooperatives? ‘If we did that,’ says one of them, ‘we would then have to accept representatives from the cooperative department. Worse, we’d have to pay their salaries.’ So over 4,000 very poor women now control the quarries they toiled in as bonded or ill-paid labourers before. All have learned to read and write, thanks to Pudukkottai’s creative literacy movement, *Arivoli Iyakkam*. With the women and not the men in control, points out N. Kannammal, a leading Arivoli activist, family spending patterns change. ‘Most of the money is spent on the families, not on arrack. The women have proved much better at fighting poverty.’
 
-Crime
+- Despite their record of success, the women’s groups are fighting for survival. A powerful coalition stands arrayed against them. Contractors done out of leases, their political patrons, and corrupt officials done out of kickbacks have hit back at the women. The arbitrariness of petty officials here is alarming. Under a new dispensation, many of these officials could turn hostile.
 
-*****
+	A while ago, some contractors discovered a passion for the environment and for their architectural heritage. They alleged that quarrying in the Kudimianmalai belt was damaging an old temple in the area. The Geological Survey of India was called in and they determined that there were no signs of damage or stress anywhere in the temple. Nor did any dust settle on the water Soon after, a court threw out a private complaint on the same issue. Now, the Archaeological Survey of India (ASI) has filed its own complaint! It does seem odd that the same ASI stayed silent for years while private contractors illegally worked the same quarries.
 
-Vinoba Bhave’s bhoodan movement
+	The contractors have come up with another, more dangerous ploy. They are forming fake DWCRA outfits as a way of sabotaging the women’s groups. The old regime has also moved through its political friends. There is tremendous pressure on the government to scrap the whole scheme when the leases come up for renewal. But the balance sheets suggest that, if anything, the experiment here is worth emulating across the country.
 
-*****
-
-that the very landlords who were to donate land under bhoodan in fact utilised it to acquire more illegal holdings.
-
-*****
-
-Bhave’s belief was that a direct plea to the hearts of the landlords could work. If it did, they would, on their own, give up some of their surplus land and these plots would go to landless peasants or marginal farmers. Most of those holdings were illegal, anyway. One part of the idea was that voluntarism would replace militant, often violent, land struggles.
-
-*****
-
-Things didn’t work out quite the way he thought they would.
-
-*****
-
-Several landowners who donated land never really parted with it in practice. Some gifted land only to take it back not very much later. Some ‘donated’ lands that never belonged to them. A few claimed ‘compensation’ for the trees, fruit and bushes on the land they were ‘giving up’.
-
-*****
-
-In a few cases, the unhappy ‘donor’ is a tiny farmer. Such a person would own an acre or less. His land,
-
-*****
-
-is likely to have been gifted away by rivals manipulating records.
-
- Some landlords re-seized the ‘donated’ plots and threw out their ‘beneficiaries’.
-
-*****
-
-In the early years after abolition of zamindari, some landlords came up with a smart move. They vested the same surplus land with both bhoodan and the government. That led to massive confusion, with both those entities trying to take control of the land. The lengthy litigation that followed while each fought the other, enabled the landlords to keep the land much longer.
-
-*****
-
-typical of that of thousands of adivasis. They simply cannot access their rights or enforce them. It matters little how progressive the law is. In her case, you have a picture of their world. Of the oppression of adivasis, of how the government machinery works. Of the fraudulent local set-up, the tediousness of court procedures, the ruthlessness of the moneylender. And how keeping the tribale illiterate makes all this possible in the first place.’
-
-*****
-
-Water problems, real and rigged DROUGHT
-
-*****
-
-Drought relief, almost equally beyond question, is rural India’s biggest growth industry. Often, there is little relation between the two. Relief can go to regions that get lots of rainfall. Even where it goes to scarcity areas, those most in need seldom benefit from it. The poor in such regions understand this. That’s why some of them call drought relief teesra fasl (the third crop). Only, they are not the ones who harvest it.
-
-*****
-
-A great deal of drought ‘relief goes into contracts handed over to private parties. These are to lay roads, dig wells, send out water tankers, build bridges, repair tanks—the works.
-
-*****
-
-The charm of this scam is that it is largely ‘legal’. And it has soul. It’s all in a good cause. The tragedy, of course, is that it rarely addresses the real problems of drought and water scarcity.
-
-*****
-
-In theory, drought-prone blocks come under a central scheme known as the Drought-Prone Areas Programme (DPAP). But bringing blocks into the DPAP is now a purely political decision.
-
-*****
-
-The same blocks then get money coming in under the employment assurance scheme (EAS), anti-desertification projects, drinking water missions and a host of other schemes. Well, some people do benefit.
-
-*****
-
-Water resources experts and administrators would largely agree that, barring problems of erratic timing and spread, most Indian districts could get by on around 800 mm of rainfall annually.
-
-*****
-
-we have several districts in India that have an abundance of rainfall—but where one section, the poor, can suffer acute drought. That happens when available water resources are colonised by the powerful. Further, the poor are never consulted or asked to participate in designing the ‘programmes’ the anti-drought funds bring.
-
-*****
-
-Governments kid themselves that by throwing money at such regions, the small fish, who have big votes, can be pacified. In reality, the lion’s share of funds going there is again appropriated by the powerful.
-
-*****
-
-Drought is a complex phenomenon. You can have an agricultural drought, for instance, even when there is no meteorological drought. That is, you can have adequate rainfall and still have crop failure. Or you can have hydrological drought, with marked depletion of rivers, streams, springs and fall in groundwater levels. The reasons for these are well known but seldom addressed. It is so much nicer to just put the whole thing down to nature’s vagaries.
-
-*****
-
-parched land is not necessarily a symbol of drought. You can have it in very wet places if you drain a pond. And you can have an acute water shortage in seemingly green areas. But parched land makes better copy and pictures.
-
-*****
-
-Every editor knows that drought means parched land and, hopefully, pictures of emaciated people. That’s what ‘human interest’ is about, isn’t it?
-
-*****
-
-Conflicts arising from man-made drought are on the rise. Deforestation does enormous damage. Villagers are increasingly losing control over common water resources. The destruction of traditional irrigation systems is gaining speed. A process of privatisation of water resources is apparent in most of the real drought areas
-
-*****
-
-There are now two kinds of drought: the real and the rigged. Both can be underway at the same time, in the same place.
-
-*****
-
-Kalahandi produces more food per person than both Orissa and India as a whole do. But its own inhabitants consume only 25 per cent of that food. The rest goes out of the region through networks of merchant-moneylenders.
-
-*****
-
-the press has viewed drought and scarcity as events. And the belief that only events make news, not processes, distorts understanding. Some of the best reports on poverty suffer from trying to dramatise it as an event. The real drama is in the process. In the causes.
-
- Deforestation has much to do with drought. But being a process, it becomes a ‘feature’.
-
-*****
-
-The reality? The combined investment in all development projects in Orissa since independence is eclipsed by the commercial value of renewable timber and forests lost in making way for them.
-
-*****
-
-So many other factors get nowhere near the attention they need. The destruction of Kalahandi’s traditional irrigation systems, for one. And flawed development strategies that hurt thousands, for another. Some of these end up spurring the migrations they seek to curb. Also, vicious usury that sees people in distress selling paddy at less than half the official support price. And a skewered landholding pattern with ever growing alienation.
-
-*****
-
-‘drought’ and ‘famine’. Obviously, these two mean very different things. But the word ‘famine’ is more alarmist and makes better copy
-
-*****
-
-Ramnad has always had one of the highest levels of long-term migration. As in Pudukkottai, the sex ratio is favourable to women—contrary to the state and national trends. This is not because women here enjoy a higher status, but due to drought-driven migration
-
-*****
-
-long-term effect that persistent water scarcity has had here. And that is its role in the loss of land by the peasants. In many parts, the development process has hurt poor people. For instance, the coming of borewells some years ago meant that the small farmers of the Muthuraja colony of Kovilpatti lost most of their lands. The borewell owners were richer and higher caste farmers of the next hamlet. And they used their new weapon to deadly effect.
---
-Pudukkottai district
-
-*****
-
-The first effect was the drying of the traditional dug-wells of the small farmers. The next step was for the borewell owners to sell water to these farmers, or to deny it to them at crucial moments, ravaging their crop and often entrapping them in debt as a consequence. The third step was to demand a part of their produce. The fourth was to dictate what they would produce. The fifth was to move from exploiting their dependence on water to acquiring their lands.
-
-*****
-
-A farcical land reform and unviable land units are also big factors. Yet, water or the lack of it deeply influences the lives of lakhs of people in this district.
-
-*****
-
-Palamau (Bihar
-
-*****
-
-gets as much as 1,200-1,230 mm of rain in a normal year, which is pretty decent. In its worst year in recent history, it received 630 mm. That’s more than what a district like Ramnad in Tamil Nadu gets in some ‘normal’ years. Yet, drought causes far more devastation in Palamau than in Ramnad.
-
-*****
-
-Many areas of India face droughts that do not turn into famines or near-famine conditions
-
-*****
-
-But in Palamau, the distance between drought and famine or near-famine conditions seems to be much shorter. This means wrong decisions can extract very high costs.
-
-*****
-
-the district still enjoys decent forest cover. Officially 40 per cent and, unofficially, around 25 per cent. Compare that with Ramnad’s 1.06 per cent forest cover. Then what is it that goes wrong with Palamau when crisis strikes?
-
-*****
-
-Palamau is presently not equipped to conserve the water it receives.
-
-*****
-
-Land-grab over the decades has removed the one cushion of many poor people—their land. For the landless, it’s worse. There is a large seasonal migration of agricultural labourers from Palamau each year,
-
-*****
-
-And those displaced by mining or ‘development’ projects have neither land nor employment. Corruption at many levels punches holes in the relief efforts that follow a crisis. ‘Often,’ says a senior official, ‘there is more money for relief than for development. That suits a lot of people.’ It’s one reason why people here call drought relief ‘teesra fasl’—the ‘third crop’. It reaps a rich harvest for the local elites.
-
-*****
-
-Drought and famine in Palamau grab the headlines because they are spectacular. But they are, still, events that flow from a number of less spectacular processes, as political activist Narendra Chaubey points out. Among those are deforestation, land-grab and poor water harvesting. Eroding infrastructure, shrinking funds and stagnating agriculture have made things worse. Growing unemployment, decaying relief and distribution systems, and rising corruption have not helped. A lack of land reform seems to be the large canvas on which the other factors fit in.
-
-*****
-
-When the poor fight back
-
-*****
-
-too often, covering the poor for the media gets reduced to romanticising the role of saintly individuals working among them. Often, these heroes are from the same class and urban backgrounds as the journalists covering them. A latter-day version of the noble missionary working among the heathen savages. Far more sophisticated, perhaps, but not too different at some levels.
-
-*****
-
-In all this, however, the role of the people themselves tends to get obscured, as do the political trends shaping within them. For their battles are most effective where they are organised. One of the reasons the poorest districts are the way they are is—the pathetic shape of organised political movements within them. Were they better organised, they would have faced a lot of problems more firmly. The poor would have wrested a better deal much earlier.
-
-*****
-
-The literacy movement has been most successful where such activists were either directly from the people in a region or shaped by their movements. People politically, culturally and class-wise close to the poor and, importantly, who learned from them. Or even village-based NGOs run on local will and not on the whims of external funding agencies.
-
-*****
-
-Of the battles these stories record, some might end in failure. Mainly because of the lack of sustained and organised democratic politics in those areas. Yet, they also argue hope.
-
-*****
-
-Pudukkottai has 350 operational stone quarries. In a radical move in 1991, about 170 of these were leased out at nominal rates to extremely poor women from the scheduled castes and the most backward castes.
-
-*****
-
-The then district collector, Sheela Rani Chunkath—virtually a legend among the poor here—pulled this off under the Development of Women and Children in Rural Areas (DWCRA) scheme. That’s a governmentsponsored anti-poverty programme.
-
-*****
-
-(Almost all registered themselves as societies and not as cooperatives.) So over 4,000 very poor women now control the quarries they toiled in as bonded or ill-paid labourers before.
-
-*****
-
-All have learned to read and write, thanks to Pudukkottai’s creative literacy movement, Arivoli Iyakkam.
-
-*****
-
-With the women and not the men in control, points out N. Kannammal, a leading Arivoli activist, family spending patterns change. ‘Most of the money is spent on the families, not on arrack. The women have proved much better at fighting poverty.’
-
-*****
-
-why they have registered their groups as societies. Why not as cooperatives? ‘If we did that,’ says one of them, ‘we would then have to accept representatives from the cooperative department. Worse, we’d have to pay their salaries.’
-
-*****
-
-Despite their record of success, the women’s groups are fighting for survival. A powerful coalition stands arrayed against them. Contractors done out of leases, their political patrons, and corrupt officials done out of kickbacks have hit back at the women.
-
-*****
-
-The arbitrariness of petty officials here is alarming.
-
-*****
-
-Under a new dispensation, many of these officials could turn hostile.
-
-*****
-
-A while ago, some contractors discovered a passion for the environment and for their architectural heritage. They alleged that quarrying in the Kudimianmalai belt was damaging an old temple in the area. The Geological Survey of India was called in
-
-*****
-
-There were no signs of damage or stress anywhere in the temple. Nor did any dust settle on the water Soon after, a court threw out a private complaint on the same issue. 
-Now, the Archaeological Survey of India (ASI) has filed its own complaint!
-
-*****
-
-it does seem odd that the same ASI stayed silent for years while private contractors illegally worked the same quarries.
-
-*****
-
-The contractors have come up with another, more dangerous ploy. They are forming fake DWCRA outfits as a way of sabotaging the women’s groups.
-
-*****
-
-The old regime has also moved through its political friends. There is tremendous pressure on the government to scrap the whole scheme when the leases come up for renewal. But the balance sheets suggest that, if anything, the experiment here is worth emulating across the country.
-
-*****
-
-Poverty, Development and the Press 
-Development is the strategy of evasion. When you can’t give people land reform, give them hybrid cows. When you can’t send the children to school, try non-formal education. When you can’t provide basic health to people, talk of health insurance. Can’t give them jobs? Not to worry. Just redefine the words ‘employment opportunities’. Don’t want to do away with using children as a form of slave labour? Never mind. Talk of ‘improving the conditions of child labour’. It sounds good. You can even make money out of it. 
+---
+##### Poverty, Development and the Press 
+- Development is the strategy of evasion. When you can’t give people land reform, give them hybrid cows. When you can’t send the children to school, try non-formal education. When you can’t provide basic health to people, talk of health insurance. Can’t give them jobs? Not to worry. Just redefine the words ‘employment opportunities’. Don’t want to do away with using children as a form of slave labour? Never mind. Talk of ‘improving the conditions of child labour’. It sounds good. You can even make money out of it. 
 This has been true of development, Indian style, for over four decades now. Central to its philosophy is the idea that we can somehow avoid the big moves, the painful ones, the reforms that Indian society really needs.
 
-*****
+- The same illusion runs through what we call our ‘globalisation’. It has the Indian elite excited. ‘We must globalise. There is no choice. Everybody else is doing it. Look at Singapore, Malaysia, Indonesia, Taiwan, South Korea.’ Of course, ‘everyone’ who is doing it, did a lot of other things. All those countries—if you must take authoritarian states as a model—went through land reform. They gave their people literacy and education, as also some standards of health, shelter, nutrition. Point this out—and the Indian elite discover our ‘cultural uniqueness’.
 
-The same illusion runs through what we call our ‘globalisation’. It has the Indian elite excited. ‘We must globalise. There is no choice. Everybody else is doing it. Look at Singapore, Malaysia, Indonesia, Taiwan, South Korea.’ 
-Of course, ‘everyone’ who is doing it, did a lot of other things. All those countries—if you must take authoritarian states as a model—went through land reform. They gave their people literacy and education, as also some standards of health, shelter, nutrition. Point this out—and the Indian elite discover our ‘cultural uniqueness’.
+	So India’s uniqueness does not stand in the way of globalisation. It stands in the way of land reform, education, health. It does not prevent external agencies making policies for India on a wide range of subjects. It does stand in the way of doing away with child labour.
 
-*****
+- Let’s say we hold a seminar on medical issues. To this, we invite not a single doctor, nurse, patient or medical expert. A lot of people would consider that odd. And rightly so. The many symposia and conferences where land reform gets rubbished are likewise odd. They never have a single landless labourer to state his or her case. To the elite that is perfectly natural. Isn’t India unique, after all?
 
-So India’s uniqueness does not stand in the way of globalisation. It stands in the way of land reform, education, health. It does not prevent external agencies making policies for India on a wide range of subjects. It does stand in the way of doing away with child labour.
+	Exclusion doesn’t end at the symposia. Peasants are excluded from land issues in real life too. Villagers are increasingly robbed of control over water and other community resources. Tribes are being more and more cut off from the forests. Yet, elite vision holds the poor and their experiences in contempt.
 
-*****
-
-Let’s say we hold a seminar on medical issues. To this, we invite not a single doctor, nurse, patient or medical expert. A lot of people would consider that odd. And rightly so. The many symposia and conferences where land reform gets rubbished are likewise odd. They never have a single landless labourer to state his or her case. To the elite that is perfectly natural. Isn’t India unique, after all?
-
-*****
-
-Exclusion doesn’t end at the symposia. Peasants are excluded from land issues in real life too. Villagers are increasingly robbed of control over water and other community resources. Tribes are being more and more cut off from the forests. Yet, elite vision holds the poor and their experiences in contempt.
-
-*****
-
-Real development would involve the transformation of the human state to a higher level of being and living. Almost all versions of development accept that. However, such a transformation must have the participation and consent of those affected by it. Their involvement in the decision-making process. And the intrusion on their environment, culture, livelihood and tradition by that process should be minimal. 
+- Real development would involve the transformation of the human state to a higher level of being and living. Almost all versions of development accept that. However, such a transformation must have the participation and consent of those affected by it. Their involvement in the decision-making process. And the intrusion on their environment, culture, livelihood and tradition by that process should be minimal. 
 But that sounds too much like work. So you can have a play staged and enacted with all the main actors sitting in the audience—if they are around at all. If reality smells, rewrite the script. Take the current champions of ‘change’. Those shouting loudest about change among the elite are the very people who ran this country for over forty years. If it is in a mess, they had much to do with it.
 
-*****
+- Many speak with passion to insist that ‘both’ things must go together. That is, poverty reduction on the one hand. And economic reforms (or what the elite see as reforms) and growth on the other. So, in theory, there is always this two-part agenda. It makes all participants in the debate feel good. Progress is being made. The reforms are fine. But ‘something must be done about poverty’. 
 
-Many speak with passion to insist that ‘both’ things must go together. That is, poverty reduction on the one hand. And economic reforms (or what the elite see as reforms) and growth on the other. So, in theory, there is always this two-part agenda. It makes all participants in the debate feel good. Progress is being made. The reforms are fine. But ‘something must be done about poverty’. 
-Poverty, education health … these make up the unfinished agenda’. The discussion ended, the participants go back to what they’re really working on. That is, part two of the agenda. Because part one is a sham. But it makes you feel good, doesn’t it?
+	Poverty, education health … these make up the unfinished agenda’. The discussion ended, the participants go back to what they’re really working on. That is, part two of the agenda. Because part one is a sham. But it makes you feel good, doesn’t it? Millions are eating less. How does that constitute a reform? The availability of foodgrain per person in this country has declined. Inflation has crushed agricultural labour. Their real wages have declined. But there’s a 37 million tonne surplus of foodgrain of which we can all be proud.
 
-*****
+- Many attitudes on view in this period go back some years. Among these, the attempt by governments to abdicate their duties towards citizens. The forms and channels of abdication are many. One, in recent times, is most favoured. That is: leave it to the NGOs. Non-governmental organisations are supposed to be able to take care of gigantic problems affecting hundreds of millions of people. Problems that elected governments, with the full force of state machinery behind them, apparently can’t handle.
 
-Millions are eating less. How does that constitute a reform? The availability of foodgrain per person in this country has declined.
+	Their growing links with the state render them anything but nongovernmental. Yet, despite many scandals, particular types of NGOs remain the sacred cows of the press, its blind spot. (Often, these are NGOs with links to the corporate sect. The government wants a ‘partnership’ with NGOs. In this, it sees an opportunity to discard its commitments towards 921 million citizens on fundamentals like health, education, housing. These are best left to NGOs, while the state tinkers around with a few trifling issues, like how to double the wealth of the richest five per cent. International funding agencies are using NGOs to dump fertilisers, harmful contraceptives and obsolete technologies. Even for corporate market research. NGOs are sometimes created for this purpose. There are groups in this country that have tried to push ‘drip irrigation’ in districts that have abundant rainfall. They hawked a technique used for the deserts of Israel (in regions not lacking in rain) because some corporate had something to sell.
 
-*****
+	Some government officials have relatives running NGOs. Quite a few launch an NGO or begin to head one the moment they retire. This makes a good sinecure. NGOs in India need certificates under the Foreign Contributions Regulation Act (FCRA) before they can receive foreign funds. It is much easier to get such a certificate if you are a government official yourself.
 
-Inflation has crushed agricultural labour. Their real wages have declined. But there’s a 37 million tonne surplus of foodgrain of which we can all be proud.
+	NGOs can and do excellent work when filling gaps. They can and do outstanding work within modest objectives. They cannot be a substitute for the state. True, many actions of some NGOs have proved most valuable. However, all the NGO projects across the country together will not achieve the lasting effects a major land reform will in a single state
 
-*****
-
-many attitudes on view in this period go back some years. Among these, the attempt by governments to abdicate their duties towards citizens.
-
-*****
-
-The forms and channels of abdication are many. One, in recent times, is most favoured. That is: leave it to the NGOs. Non-governmental organisations are supposed to be able to take care of gigantic problems affecting hundreds of millions of people. Problems that elected governments, with the full force of state machinery behind them, apparently can’t handle.
-
-*****
-
-Their growing links with the state render them anything but nongovernmental. Yet, despite many scandals, particular types of NGOs remain the sacred cows of the press, its blind spot. (Often, these are NGOs with links to the corporate sect
-
-*****
-
-the government wants a ‘partnership’ with NGOs. In this, it sees an opportunity to discard its commitments towards 921 million citizens on fundamentals like health, education, housing. These are best left to NGOs, while the state tinkers around with a few trifling issues, like how to double the wealth of the richest five per cent
-
-*****
-
-International funding agencies are using NGOs to dump fertilisers, harmful contraceptives and obsolete technologies. Even for corporate market research. NGOs are sometimes created for this purpose. There are groups in this country that have tried to push ‘drip irrigation’ in districts that have abundant rainfall. They hawked a technique used for the deserts of Israel (in regions not lacking in rain) because some corporate had something to sell.
-
-*****
-
-Some government officials have relatives running NGOs. Quite a few launch an NGO or begin to head one the moment they retire. This makes a good sinecure. NGOs in India need certificates under the Foreign Contributions Regulation Act (FCRA) before they can receive foreign funds. It is much easier to get such a certificate if you are a government official yourself.
-
-*****
-
-NGOs can and do excellent work when filling gaps. They can and do outstanding work within modest objectives. They cannot be a substitute for the state.
-
-*****
-
-True, many actions of some NGOs have proved most valuable.
-
-*****
-
-All the NGO projects across the country together will not achieve the lasting effects a major land reform will in a single state
-
-*****
-
-After over four decades of ‘development’, these facts remain: One out of every three persons in the world lacking safe and adequate drinking water is an Indian. Nearly one in every two illiterates in the world is a citizen of this country. Nearly one of every three children outside schools in the planet is an Indian.
-
- The largest number of absolute poor live in this country. So do the largest number of those with inadequate housing. Indians have among the lowest per capita consumption of textiles in the world. There are more job seekers registered at the employment exchanges of India than there are jobless in all the twenty-four nations of the OECD put together. Yet, this nation has over forty-four million child labourers, the largest contingent in the world. India’s dismal position in the UNDP’s Human Development Index has not improved in the last five years. It has, if anything, fallen.
-Every third leprosy patient in the globe is an Indian. So is every fourth being in the planet dying of water-borne or water-related diseases. Over three fourths of all the tuberculosis cases that exist at any time world-wide are in this country. No nation has more people suffering from blindness. Tens of millions of Indians suffer from malnutrition
-
---
-Reading books with ReadEra
-https://readera.org
+---
