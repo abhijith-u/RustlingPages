@@ -1,0 +1,11 @@
+### Tamil Characters by A. R. Venkatachalapathy
+
+- While professional troupes toured across the Tamil hinterland, staging plays in makeshift halls, amateur theatre groups drew their audiences from the Brahmin middle class and were confined to Chennai and the bigger cities.
+
+- CS reclaimed Singaravelu for the communist movement in Tamilnadu. But for his work Singaravelu would have been confined to a brief chapter in the history of the Dravidian movement when Periyar’s Non-Brahmin Movement spectacularly adopted socialist ideas.
+
+- Popular misconception notwithstanding, the Dravidian movement was never primarily a secessionist movement. Periyar always raised the issue of secession in relation to the lack of power for the backward classes and lower castes. If the Indian Union came in the way of the aspirations of the Shudras he said that he would demand secession. (How else would K. Kamaraj have agreed to rub shoulders with Periyar for over a decade, from 1954 to 1967?) Hardly ever did the DK or DMK actually launch an agitation for a separate state.
+
+- Tamil identity politics has its intellectual genesis in the work of nineteenth-century European Orientalists and the rediscovery of the Tamil classics by Tamil scholars. This coalesced with the Non-Brahmin Movement that emerged in the first decades of the twentieth century.
+
+- Tamil identity politics were shared by Tamilnadu and Eelam. But a crucial element was missing in Eelam. Sri Lankan Tamils could never identify themselves with the (dominant) non-Brahmin component of the Dravidian movement, nor endorse the radical social reform programme championed by Periyar. The annihilation of the LTTE has left a political vacuum. In the decade preceding the July 1983 pogrom there were many contending political forces in Tamil Sri Lanka – from the moderates to the many groups of armed militants. The systematic elimination of all such forces by the LTTE resulted in the absence of a formation to articulate the grievances of the Sri Lankan Tamils in a language comprehensible to the international community. All the voices that we hear are from those outside Sri Lanka – Tamils in the diaspora and various shades of opinion in Tamilnadu. The Tamils in Sri Lanka themselves seem to have no voice.
