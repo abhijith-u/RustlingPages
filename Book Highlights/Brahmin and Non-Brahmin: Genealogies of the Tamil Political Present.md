@@ -1,4 +1,4 @@
-#### Brahmin and Non-Brahmin: Genealogies of the Tamil Political Present by M. S. S. Pandian
+### Brahmin and Non-Brahmin: Genealogies of the Tamil Political Present by M. S. S. Pandian
 
 #### 1. Introduction: The Politics of the Emergent
 - The very term ‘non-Brahmin’, in its lexicalization, makes the Brahmin central. The normalization of the category non- Brahmin—i.e. the process of making it a transparent, naturalized, and sedimented category—simultaneously reconfigured the preexisting Brahmin identity. More specifically, this book maps the historical and political conjunctures that led to the formation of Brahmin and non-Brahmin as objects of discourse: the enunciative modalities which delimited the ways in which Brahmin and non-Brahmin were talked about, and how these figures acquired over time their concrete meanings.
