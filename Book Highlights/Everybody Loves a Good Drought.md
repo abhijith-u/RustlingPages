@@ -1,4 +1,4 @@
-#### Everybody Loves a Good Drought by P. Sainath
+### Everybody Loves a Good Drought by P. Sainath
 
 ##### Health
 - In any case, looking too closely at India’s real health problems has this catch. It raises troubling questions about the West’s own role in promoting certain models and enforcing these on developing countries via pressure from funding institutions.
