@@ -1,3 +1,5 @@
+### Gods, Guns and Missionaries by Manu S. Pillai
+
 #### Introduction
 ##### Chapter Summary: 
 This chapter deals with the circumstances preceding the rise of the system that we now know as Hinduism and the dominating influence that Brahmins have wielded in sculpting it into the form that we know today. The shaping of power structures by legitimising the so-called "divine right" of the ruling class and by carefully integrating the existing dominant narrative with Brahmanical ideas, leading to either the downgrading of opposing philosophies such as Buddhism and Jainism and simultaneously the assimilation of folk practices and legitimising them with Puranic references, was the highlight of the Brahmanical influence on shaping present-day Hinduism and its practices.
