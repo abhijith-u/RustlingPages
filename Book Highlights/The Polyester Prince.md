@@ -1,3 +1,4 @@
+### The Polyester Prince by Hamish McDonald
 
 > 'There are three Dhirubhai Ambanis' one of his fellow Gujaratis, a writer-told me. One is unique, larger than life, a brand name. He is one of the most talked about industrialists, and for Gujarati people he has tremendous emotional and sentimental appeal. He is their ultimate man, and has inspired many emulators. The second Dhirubhai Ambani, is a schemer, a first-cass liar who regrets nothing and has no values in life. Then there is the third Dhirubhai Ambani, who has a more sophisticated political brain, a dreamer and a visionary, almost Napoleonic. People are always getting the three personalities mistaken.'
 
