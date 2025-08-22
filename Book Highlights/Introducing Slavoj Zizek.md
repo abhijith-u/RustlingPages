@@ -7,222 +7,60 @@
 
 - A “subject” is someone who adheres to the rules and ideals governing language, communication and exchange (“the symbolic order”) without being fully conscious of them. Marx applied this idea to capitalism; subsequently, Lacan did the same in relation to the structure of language. Marx proposed that the subject is formed in the act of economic exchange (buying or selling commodities), while Lacan suggested that language constructs the subject as it speaks.
 
-- A combination of consumerism with an ethical dimension is, Žižek believes, “cultural capitalism at its purest – in the very consumerist act you buy redemption from being a consumerist”. Žižek argues that this feeling of redemption from Western consumerist guilt is closely allied to the vogue for organic goods and other environmentally friendly products that also act as a salve to the consumer’s conscience. Žižek caustically observes that when we purchase, say, a bag of organic apples, it is not because they necessarily taste any better than other apples.
+- A combination of consumerism with an ethical dimension is, Žižek believes, “cultural capitalism at its purest – in the very consumerist act you buy redemption from being a consumerist”. Žižek argues that this feeling of redemption from Western consumerist guilt is closely allied to the vogue for organic goods and other environmentally friendly products that also act as a salve to the consumer’s conscience. Žižek caustically observes that when we purchase, say, a bag of organic apples, it is not because they necessarily taste any better than other apples. With the problems of poverty and ecology already included in the price of what we buy, our conscience is absolved. Thus, making it all too easy to think that capitalism takes care of the predicaments facing the world.
 
+- Žižek concurs with Oscar Wilde (1854–1900) who argued in his essay “The Soul of Man Under Socialism” (1891): CHARITY DOES NOT CURE THE DISEASE BUT RATHER SIMPLY PROLONGS IT. Wilde suggested that charity is actually part of the disease it is trying to cure, since altruistic gestures simply preserve the status quo and prevent the radical reconstruction of society by which poverty may be alleviated altogether. Žižek’s philosophy is that capitalism cannot be made to work for the good, however much it tries to put on a human face.
 
-With the problems of poverty and ecology already included in the price of what we buy, our conscience is absolved. Thus, making it all too easy to think that capitalism takes care of the predicaments facing the world.
+- In Žižek’s view, the primary motivation behind the geo-political manoeuvres of the US is to ensure the continuing domination of its own capitalist interests. With this in mind, Žižek dismisses the supposed opposition between Western “liberal” and Islamic “fundamentalist” values as an ideological ploy fostered by the US. IF ONE LOOKS CLOSELY, THE USA IS PLAYING A DUPLICITOUS GAME OF RETAINING PRIVILEGED LINKS WITH ISRAEL AND WITH CONSERVATIVE ARAB REGIMES LIKE THOSE OF SAUDI ARABIA AND KUWAIT … AND OF KEEPING THESE DEEPLY CONSERVATIVE MONARCHIES AS ECONOMIC ALLIES FULLY INTEGRATED INTO WESTERN CAPITALISM. What Žižek calls the “McWorld versus Jihad” conflict expounded by the media overlooks the geo-political adventuring of American-backed corporate interests intent upon gaining access to the Middle East’s oil reserves. According to Žižek: “Even in the few cases that would vaguely fit the definition of the ‘clash of civilizations’ (Bosnia and Kosovo, southern Sudan), the shadow of other interests is easily discernible.”
 
+- Žižek’s conclusion is that the phenomenon of the Taliban should not be seen simply as a reversion to traditional, feudal values but more as a way of countering Western ideology and American imperialism. In other words, it is an outcome of contemporary political forces and not simply an overhang from the past. When Žižek is in an optimistic mood he envisages “America post-9/11 finally accepting that the attack on the World Trade Center was an inverted form of its own global violence”. However, what Žižek sees happening in reality post-9/11 is a reassertion of “America’s traditional ideological commitments and rejection of feelings of responsibility and guilt towards the Third World”. According to Žižek, this approach is defended by the ideology: “We are the victims now and so we have every right to retaliate!”
 
-Žižek concurs with Oscar Wilde (1854–1900) who argued in his essay “The Soul of Man Under Socialism” (1891): CHARITY DOES NOT CURE THE DISEASE BUT RATHER SIMPLY PROLONGS IT. Wilde suggested that charity is actually part of the disease it is trying to cure, since altruistic gestures simply preserve the status quo and prevent the radical reconstruction of society by which poverty may be alleviated altogether. Žižek’s philosophy is that capitalism cannot be made to work for the good, however much it tries to put on a human face.
+- Ideology and repression Like other radical thinkers, Žižek’s opposition towards capitalism lies in its creation of social inequalities, particularly as this is manifested in terms of the distribution of wealth. But he does not believe that political opposition to capitalism can arise solely through an understanding of economics. For him, political and social repression, however manifested, is ultimately caused by ideology.
+ 
+- The symbolic order is both any system of communication (such as language, discourse, a method of monetary exchange, a game, or any system of signs) and the rules governing that system.
 
+- Žižek believes that the symbolic order is a gift of communication for humanity. But it is also as dangerous to humanity as the horse was to the Trojans. It offers itself to our use free of charge, but once we accept it, it colonizes us. Underlying all of the rules that govern the usage of any symbolic system is one fundamental rule or law: meaning is dependent upon the symbolic system, itself. And the paradox is that even if this dependency is recognized, it can only be done within the terms of the symbolic order. However much we may strive to be conscious of our dependency and however much we may desire to represent our submission to the symbolic order, we cannot step out of it.
 
-In Žižek’s view, the primary motivation behind the geo-political manoeuvres of the US is to ensure the continuing domination of its own capitalist interests.
+  For Žižek, this constraint whereby the symbolic order governs the formation of the subject’s own self-identity depends upon the rule of an authoritarian “super-ego”. Just as the rules and laws governing the symbolic order are always present, yet cannot be acknowledged, so, too, this applies to the super-ego (The Big Other) as an embodiment of these rules and laws. Žižek emphasizes the fact that the big Other is just as much a fiction as the symbolic order. “Its substance is actual only in so far as individuals believe in it and act accordingly. Therefore, the big Other is also based upon ‘lack’ - the lack that is our unconscious. The unconscious exists as a blind spot in subjectivity: our inability to articulate and be fully conscious of our dependency upon the symbolic order. Like the subject, its existence is merely an affect of the symbolic system.
 
+- The super-ego functions not only as a custodian of the symbolic order regarding meaning at the level of what can and cannot be said, but also it acts as a guardian of society’s laws, morals and codes of good behaviour and proper conduct. “When we obey the Law, we do it as part of a desperate strategy to fight against our desire to transgress it, so the more rigorously we OBEY the Law, the more we bear witness to the fact that, deep in ourselves, we feel the pressure of the desire to indulge in sin.” For Žižek, transgression – imagined or real forms of enjoyment that seem to contradict the dominant ideas or laws controlling social, moral and ethical behaviour – is built into all societies. This is because for every law or ideal of behaviour and conduct that exists in society, there is its implied crime or transgression that is prohibited or frowned upon.
 
-With this in mind, Žižek dismisses the supposed opposition between Western “liberal” and Islamic “fundamentalist” values as an ideological ploy fostered by the US. IF ONE LOOKS CLOSELY, THE USA IS PLAYING A DUPLICITOUS GAME OF RETAINING PRIVILEGED LINKS WITH ISRAEL AND WITH CONSERVATIVE ARAB REGIMES LIKE THOSE OF SAUDI ARABIA AND KUWAIT … AND OF KEEPING THESE DEEPLY CONSERVATIVE MONARCHIES AS ECONOMIC ALLIES FULLY INTEGRATED INTO WESTERN CAPITALISM. What Žižek calls the “McWorld versus Jihad” conflict expounded by the media overlooks the geo-political adventuring of American-backed corporate interests intent upon gaining access to the Middle East’s oil reserves.
+  And, indeed, in all political regimes and societies there is the tacit understanding that subjects can “let off steam” and enjoy activities that are not acknowledged in public life, such as telling dirty jokes, indulging in alcohol or drugs, consuming pornography, watching violent sports, visiting prostitutes and going to war. “Officially the Church preaches prohibition regarding the seven deadly sins, but actually it is wholly dependent on these prohibitions being disregarded. The Church needs sinners who repent their sins.” Žižek observes that there is invariably a hypocritical and contradictory character to the exercise of political forms of moral authority. In the case of the Nazis, a certain hypocrisy was upheld about their own obscene acts of genocide. The Nazis liked to maintain a moral image and insisted that their programme of exterminating the Jews and other dissidents was one of “purification”. This is why they maintained the death camps as a secret, one that could be revealed only on condition that it was never acknowledged.
 
+- The death of God In Western society today it may seem difficult to identify the presence of a dominating super-ego, especially since society has moved away from Christian forms of morality towards secularism. Žižek believes that this “freedom” to do as we wish never in reality overthrows the omnipresent figure of the super-ego. Even in states of apparent lawlessness such as that during the Bosnian crisis of the 1990s, the super-ego exerted a paradoxical power. Rather than forbidding permissiveness, the super-ego retained its authority by granting it: “If you follow me, you may with impunity rape, sexually harass, kill.”
 
-According to Žižek: “Even in the few cases that would vaguely fit the definition of the ‘clash of civilizations’ (Bosnia and Kosovo, southern Sudan), the shadow of other interests is easily discernible.”
+  Žižek believes that the idea of a “permissive” society in the West is largely a myth. It may be true that ever-new forms of perversity are indulged in, but this does not mean that society is hedonistic and free of moral injunctions. Žižek’s central thesis is that in a situation where everything is permitted, what in fact happens is an increase rather than a decrease in self-regulation.
 
+- In modernity, the individual was governed by the injunction to be a good citizen and ultimately, if necessary, to sacrifice one’s life to the cause of the nation. IN THE WEST THE IMPERATIVE WAS: “BE A GOOD DEMOCRAT!” WHILE ALTERNATIVELY IN THE EASTERN BLOC IT WAS: “BE A GOOD COMMUNIST!” In other words, the super-ego during this time was that of a paternal authority. A new form of the super-ego has emerged. Referring to Freud’s ideas, Žižek believes that this is reflected in a shift from the figure of an Oedipal Father representing authority to a Primal Father of obscene enjoyment who symbolizes “authority” in postmodernism. Rather than forbidding the subject to indulge in immoral or excessive and perverse pleasures, which was previously the role performed by the Oedipal Father in the guise of the super-ego, Žižek observes that now there exists a pressure to fulfil such desires – as if this is the only way happiness can be found.
 
-Žižek’s conclusion is that the phenomenon of the Taliban should not be seen simply as a reversion to traditional, feudal values but more as a way of countering Western ideology and American imperialism. In other words, it is an outcome of contemporary political forces and not simply an overhang from the past.
+  Today’s super-ego, with its demand upon us to enjoy, forces desire and its objects of gratification to short-circuit into an implosive spiral of addiction. The imperative is that you should be consuming, shopping, eating, having sex, etc. The logic of the injunction is that if you are not doing these things, then you are an unfortunate individual. The pressure to do more, see more, enjoy more actually makes people deeply unhappy. Contemporary society under late capitalism one of the most familiar forms of the injunction to enjoy is a mildly hedonist injunction centred upon being true to yourself. This manifests itself in the desire to “make something” of one’s life, to be “happy”.
 
+- Traditionally, advertising had an imaginary and symbolic dimension. The imaginary dimension referred to the object’s real qualities. The symbolic dimension raised the issue of social status and “keeping up with the Joneses”. However, a new dimension has appeared in advertising recently that centres upon the experience to be gained from owning the advertised product. This refers neither to the real qualities of the product (the imaginary dimension) nor to the social status to be acquired from owning the product (the symbolic dimension). This new dimension of advertising focuses upon how and in what ways the product renders one’s life meaningful.
 
-When Žižek is in an optimistic mood he envisages “America post-9/11 finally accepting that the attack on the World Trade Center was an inverted form of its own global violence”.
+  A similar tendency to seek a sense of meaningfulness underlies the widespread involvement, especially among the liberal classes, in so-called progressive causes today. Being involved in progressive causes offers the opportunity of an ethical experience: the belief that one is doing something “good” and caring for the world.
 
+- A further reason why Žižek is suspicious of the equation that is made between happiness and self-realization in Western society today is how cautious and guarded people are about allowing any sense of intensity, risk or emotional excess into their lives. In conclusion, Žižek states that: “Virtual Reality – computer simulated environments that compose new ‘realities’ – simply generalizes this procedure of offering a product deprived of its substance: it provides reality itself deprived of its substance; just as decaffeinated coffee smells and tastes like real coffee without being real coffee, Virtual Reality is experienced as reality without being so.”
 
-However, what Žižek sees happening in reality post-9/11 is a reassertion of “America’s traditional ideological commitments and rejection of feelings of responsibility and guilt towards the Third World”. According to Žižek, this approach is defended by the ideology: “We are the victims now and so we have every right to retaliate!”
+- So the question is: given the ubiquitous presence of the super-ego, or the big Other, can its repressive authority be overcome? Žižek’s answer is yes. But he adds the proviso: only in so far as the subject is prepared to relinquish altogether their attachment to any kind of ideal and to confront the fact that the symbolic order through which identity is maintained is ultimately a fiction. It seems that to attempt to access the void that is the unconscious, ultimately means to evacuate language and representation altogether. This results in psychic breakdown since language and representation bind together the subject. 
 
+  The conclusion would appear to be that without some artificial system of symbolic order by which to organize “reality”, the individual ceases to exist.
 
-Ideology and repression Like other radical thinkers, Žižek’s opposition towards capitalism lies in its creation of social inequalities, particularly as this is manifested in terms of the distribution of wealth. But he does not believe that political opposition to capitalism can arise solely through an understanding of economics. For him, political and social repression, however manifested, is ultimately caused by ideology.
+  Nevertheless, Žižek holds open the possibility of the subject recognizing their own fictional status within reality. This is the ultimate purpose of treatment in psychoanalysis. “In contrast to the notion that I can be absolutely certain only of the ideas in my own mind, whereas the existence of reality outside myself is already an inconclusive inference, psychoanalysis claims that reality outside myself definitely exists.” By recognizing the fictional nature of unitary identity, the dominating presence of the super-ego is overthrown. In Lacanian discourse this is symbolized by the shift from the position S (representing the subject) to the position $ (at the end of successful psychoanalytic treatment, the person analysed is “barred” from the fiction sustaining subjectivity). According to Žižek, the process by which the subject perceives their own fictional status, and therefore shifts from the position S to the position $, involves both a recognition that their own subjectivity is entirely fictional and void – based in nothing – and that this void is perpetually filled in by the fiction of language. And yet, while language conceals the void, it also is the void since it is an utter illusion – a symbolic system that generates the fiction of the subject.
 
+- Direct access to the void that is both language and the void that lies “behind” language is impossible. The recognition involved here is one of seeing that we were not where we thought we were, even though we remain in the same place. For Žižek, there can be practical actions, deeds or decisions in life that implicitly recognize that the symbolic order is a fiction. Žižek says these acts fall into the category of “immoral ethics”. By immoral ethics Žižek actually means, paradoxically, an authentic form of ethics.
 
-The symbolic order is both any system of communication (such as language, discourse, a method of monetary exchange, a game, or any system of signs) and the rules governing that system.
+  Ethics is about our relation to our own desire. Žižek stresses that his idea of immoral ethics is not a matter of fulfilling one’s fantasies of desire, for instance of an unrestrained hedonism.
 
+- Revolutionary ethics (Terror as virtue): Žižek takes up Jacobin leader Maximilien Robespierre’s point: “Moderates want a revolution deprived of the excess in which terror and democracy coincide, a revolution respecting social rules, subordinated to pre-existing norms, a revolution in which violence is deprived of the ‘divine’ dimension and thus reduced to a strategic intervention serving precise and limited goals.”
 
-Žižek believes that the symbolic order is a gift of communication for humanity. But it is also as dangerous to humanity as the horse was to the Trojans. It offers itself to our use free of charge, but once we accept it, it colonizes us.
+The “divine dimension”, in this context of revolutionary violence, Žižek views as “the heroic assumption of the solitude of a sovereign decision. It is a decision (to kill, to risk or lose one’s life) made in absolute solitude, not covered by the big Other.” Quoting Robespierre, Žižek believes that there is a point in revolutionary events – including that of the Terror – where justice and vengeance can coincide.
 
+- For Žižek, an excess existing beyond any pre-established forms of morality or laws is a hallmark of true revolutionary politics. Therefore, in an authentic revolution there is no question of its participants being either innocent or guilty, since no state or law exists by which to measure such standards. In a revolution everything is overthrown, including the idea that there is an independent way of judging what is right and what is wrong. Žižek observes that “the true problem of revolution is not taking power; it’s what you do the day after”. In Žižek’s view, the Reign of Terror was an attempt to maintain the revolutionary event of 1789, and not deny it, by fully embracing the need to change the existing social relations of power at any cost.
 
-Underlying all of the rules that govern the usage of any symbolic system is one fundamental rule or law: meaning is dependent upon the symbolic system, itself. And the paradox is that even if this dependency is recognized, it can only be done within the terms of the symbolic order. However much we may strive to be conscious of our dependency and however much we may desire to represent our submission to the symbolic order, we cannot step out of it.
+- However, Žižek is concerned not to advocate violence simply for its own sake. “The task of the revolutionary is indeed to be violent, but also to avoid the type of violence that is, in fact, merely an impotent passage à l’acte [an impulsive acting out]. Often the most brutal explosions of violence are admissions of impotence.” Whatever the form that radical gestures of political liberation may take – a riot, a lynching, an outright refusal to engage in political discourse, an imposition of collective or statist will – Žižek claims that such gestures render the big Other redundant.
 
+- Duty and the categorical imperative: Žižek states, “the reference to duty as the excuse to do one’s duty is hypocritical”. In other words, the responsibility for any crime committed in the name of duty must remain fairly and squarely with the subject: it cannot be blamed on some figure of the big Other. A further consequence of removing responsibility for one’s actions from the fantasized support of the big Other is that the subject cannot excuse his or her actions by claiming they were powerless to defy the authorities. The implication of Žižek’s arguments about duty is that the subject has to assume entire responsibility for his or her actions.
 
-For Žižek, this constraint whereby the symbolic order governs the formation of the subject’s own self-identity depends upon the rule of an authoritarian “super-ego”. Just as the rules and laws governing the symbolic order are always present, yet cannot be acknowledged, so, too, this applies to the super-ego as an embodiment of these rules and laws.
-NOTE: The Big Other
+- Žižek subscribes to Lacan’s view that “there is no big Other”: the big Other is a total fantasy. Without a God, or indeed any figure of a big Other to fill out the subject’s sense of individual and social identity, “reality” itself is rendered somehow incomplete and unfinished. Žižek finds this idea of the incompleteness of reality deeply liberating. In the absence of a complete “reality” the illusion of the self also collapses, since there is nothing definite existing in “outside reality” to help substantiate the coordinates of a self. All that is left is a confrontation with the fiction that lies at the heart of the symbolic order, but which the subject, in an effort to maintain a sense of unified identity, denies.
+---
 
-
-Žižek emphasizes the fact that the big Other is just as much a fiction as the symbolic order.
-
-
-“Its substance is actual only in so far as individuals believe in it and act accordingly. Therefore, the big Other is also based upon ‘lack’. Like the subject, its existence is merely an affect of the symbolic system.”
-
-
-“lack” – the lack that is our unconscious. The unconscious exists as a blind spot in subjectivity: our inability to articulate and be fully conscious of our dependency upon the symbolic order.
-
-
-The super-ego functions not only as a custodian of the symbolic order regarding meaning at the level of what can and cannot be said, but also it acts as a guardian of society’s laws, morals and codes of good behaviour and proper conduct.
-
-
-“When we obey the Law, we do it as part of a desperate strategy to fight against our desire to transgress it, so the more rigorously we OBEY the Law, the more we bear witness to the fact that, deep in ourselves, we feel the pressure of the desire to indulge in sin.”
-
-
-For Žižek, transgression – imagined or real forms of enjoyment that seem to contradict the dominant ideas or laws controlling social, moral and ethical behaviour – is built into all societies. This is because for every law or ideal of behaviour and conduct that exists in society, there is its implied crime or transgression that is prohibited or frowned upon.
-
-
-And, indeed, in all political regimes and societies there is the tacit understanding that subjects can “let off steam” and enjoy activities that are not acknowledged in public life, such as telling dirty jokes, indulging in alcohol or drugs, consuming pornography, watching violent sports, visiting prostitutes and going to war.
-
-
-“Officially the Church preaches prohibition regarding the seven deadly sins, but actually it is wholly dependent on these prohibitions being disregarded. The Church needs sinners who repent their sins.”
-
-
-Žižek observes that there is invariably a hypocritical and contradictory character to the exercise of political forms of moral authority. In the case of the Nazis, a certain hypocrisy was upheld about their own obscene acts of genocide. The Nazis liked to maintain a moral image and insisted that their programme of exterminating the Jews and other dissidents was one of “purification”. This is why they maintained the death camps as a secret, one that could be revealed only on condition that it was never acknowledged.
-
-
-The death of God In Western society today it may seem difficult to identify the presence of a dominating super-ego, especially since society has moved away from Christian forms of morality towards secularism.
-
-
-Žižek believes that this “freedom” to do as we wish never in reality overthrows the omnipresent figure of the super-ego. Even in states of apparent lawlessness such as that during the Bosnian crisis of the 1990s, the super-ego exerted a paradoxical power. Rather than forbidding permissiveness, the super-ego retained its authority by granting it: “If you follow me, you may with impunity rape, sexually harass, kill.”
-
-
-Žižek believes that the idea of a “permissive” society in the West is largely a myth. It may be true that ever-new forms of perversity are indulged in, but this does not mean that society is hedonistic and free of moral injunctions.
-
-
-Žižek’s central thesis is that in a situation where everything is permitted, what in fact happens is an increase rather than a decrease in self-regulation.
-
-
-In modernity, the individual was governed by the injunction to be a good citizen and ultimately, if necessary, to sacrifice one’s life to the cause of the nation. IN THE WEST THE IMPERATIVE WAS: “BE A GOOD DEMOCRAT!” WHILE ALTERNATIVELY IN THE EASTERN BLOC IT WAS: “BE A GOOD COMMUNIST!” In other words, the super-ego during this time was that of a paternal authority.
-
-
-a new form of the super-ego has emerged. Referring to Freud’s ideas, Žižek believes that this is reflected in a shift from the figure of an Oedipal Father representing authority to a Primal Father of obscene enjoyment who symbolizes “authority” in postmodernism.
-
-
-Rather than forbidding the subject to indulge in immoral or excessive and perverse pleasures, which was previously the role performed by the Oedipal Father in the guise of the super-ego, Žižek observes that now there exists a pressure to fulfil such desires – as if this is the only way happiness can be found.
-
-
-Today’s super-ego, with its demand upon us to enjoy, forces desire and its objects of gratification to short-circuit into an implosive spiral of addiction.
-
-
-The imperative is that you should be consuming, shopping, eating, having sex, etc. The logic of the injunction is that if you are not doing these things, then you are an unfortunate individual. The pressure to do more, see more, enjoy more actually makes people deeply unhappy.
-
-
-contemporary society under late capitalism one of the most familiar forms of the injunction to enjoy is a mildly hedonist injunction centred upon being true to yourself. This manifests itself in the desire to “make something” of one’s life, to be “happy”.
-
-
-Traditionally, advertising had an imaginary and symbolic dimension. The imaginary dimension referred to the object’s real qualities.
-
-
-The symbolic dimension raised the issue of social status and “keeping up with the Joneses”.
-
-
-However, a new dimension has appeared in advertising recently that centres upon the experience to be gained from owning the advertised product. This refers neither to the real qualities of the product (the imaginary dimension) nor to the social status to be acquired from owning the product (the symbolic dimension). This new dimension of advertising focuses upon how and in what ways the product renders one’s life meaningful.
-
-
-A similar tendency to seek a sense of meaningfulness underlies the widespread involvement, especially among the liberal classes, in so-called progressive causes today.
-
-
-Being involved in progressive causes offers the opportunity of an ethical experience: the belief that one is doing something “good” and caring for the world.
-
-
-A further reason why Žižek is suspicious of the equation that is made between happiness and self-realization in Western society today is how cautious and guarded people are about allowing any sense of intensity, risk or emotional excess into their lives.
-
-
-conclusion, Žižek states that: “Virtual Reality – computer simulated environments that compose new ‘realities’ – simply generalizes this procedure of offering a product deprived of its substance: it provides reality itself deprived of its substance; just as decaffeinated coffee smells and tastes like real coffee without being real coffee, Virtual Reality is experienced as reality without being so.”
-
-
-So the question is: given the ubiquitous presence of the super-ego, or the big Other, can its repressive authority be overcome? Žižek’s answer is yes. But he adds the proviso: only in so far as the subject is prepared to relinquish altogether their attachment to any kind of ideal and to confront the fact that the symbolic order through which identity is maintained is ultimately a fiction.
-
-
-It seems that to attempt to access the void that is the unconscious,
-
-
-ultimately means to evacuate language and representation altogether. This results in psychic breakdown since language and representation bind together the subject. The conclusion would appear to be that without some artificial system of symbolic order by which to organize “reality”, the individual ceases to exist.
-
-
-The conclusion would appear to be that without some artificial system of symbolic order by which to organize “reality”, the individual ceases to exist.
-
-
-Nevertheless, Žižek holds open the possibility of the subject recognizing their own fictional status within reality. This is the ultimate purpose of treatment in psychoanalysis.
-
-
-“In contrast to the notion that I can be absolutely certain only of the ideas in my own mind, whereas the existence of reality outside myself is already an inconclusive inference, psychoanalysis claims that reality outside myself definitely exists.”
-
-
-By recognizing the fictional nature of unitary identity, the dominating presence of the super-ego is overthrown. In Lacanian discourse this is symbolized by the shift from the position S (representing the subject) to the position $ (at the end of successful psychoanalytic treatment, the person analysed is “barred” from the fiction sustaining subjectivity).
-
-
-According to Žižek, the process by which the subject perceives their own fictional status, and therefore shifts from the position S to the position $, involves both a recognition that their own subjectivity is entirely fictional and void – based in nothing – and that this void is perpetually filled in by the fiction of language. And yet, while language conceals the void, it also is the void since it is an utter illusion – a symbolic system that generates the fiction of the subject.
-
-
-direct access to the void that is both language and the void that lies “behind” language is impossible.
-
-
-the recognition involved here is one of seeing that we were not where we thought we were, even though we remain in the same place.
-
-
-For Žižek, there can be practical actions, deeds or decisions in life that implicitly recognize that the symbolic order is a fiction. Žižek says these acts fall into the category of “immoral ethics”. By immoral ethics Žižek actually means, paradoxically, an authentic form of ethics.
-
-
-ethics is about our relation to our own desire.
-
-
-Žižek stresses that his idea of immoral ethics is not a matter of fulfilling one’s fantasies of desire, for instance of an unrestrained hedonism.
-
-
-Revolutionary ethics
-
-
-Terror as virtue
-
-
-Jacobin leader Maximilien Robespierre
-
-
-Žižek takes up Robespierre’s point: “Moderates want a revolution deprived of the excess in which terror and democracy coincide, a revolution respecting social rules, subordinated to pre-existing norms, a revolution in which violence is deprived of the ‘divine’ dimension and thus reduced to a strategic intervention serving precise and limited goals.”
-
-
-The “divine dimension” in this context of revolutionary violence
-
-
-Žižek views it as “the heroic assumption of the solitude of a sovereign decision. It is a decision (to kill, to risk or lose one’s life) made in absolute solitude, not covered by the big Other.”
-
-
-Quoting Robespierre, Žižek believes that there is a point in revolutionary events – including that of the Terror – where justice and vengeance can coincide.
-
-
-For Žižek, an excess existing beyond any pre-established forms of morality or laws is a hallmark of true revolutionary politics. Therefore, in an authentic revolution there is no question of its participants being either innocent or guilty, since no state or law exists by which to measure such standards. In a revolution everything is overthrown, including the idea that there is an independent way of judging what is right and what is wrong.
-
-
-Žižek observes that “the true problem of revolution is not taking power; it’s what you do the day after”. In Žižek’s view, the Reign of Terror was an attempt to maintain the revolutionary event of 1789, and not deny it, by fully embracing the need to change the existing social relations of power at any cost.
-
-
-However, Žižek is concerned not to advocate violence simply for its own sake.
-
-
-“The task of the revolutionary is indeed to be violent, but also to avoid the type of violence that is, in fact, merely an impotent passage à l’acte [an impulsive acting out]. Often the most brutal explosions of violence are admissions of impotence.”
-
-
-Whatever the form that radical gestures of political liberation may take – a riot, a lynching, an outright refusal to engage in political discourse, an imposition of collective or statist will – Žižek claims that such gestures render the big Other redundant.
-
-
-Duty and the categorical imperative
-
-
-Žižek states, “the reference to duty as the excuse to do one’s duty is hypocritical”.
-
-
-In other words, the responsibility for any crime committed in the name of duty must remain fairly and squarely with the subject: it cannot be blamed on some figure of the big Other.
-
-
-A further consequence of removing responsibility for one’s actions from the fantasized support of the big Other is that the subject cannot excuse his or her actions by claiming they were powerless to defy the authorities.
-
-
-The implication of Žižek’s arguments about duty is that the subject has to assume entire responsibility for his or her actions.
-
-
-Žižek subscribes to Lacan’s view that “there is no big Other”: the big Other is a total fantasy.
-
-
-Without a God, or indeed any figure of a big Other to fill out the subject’s sense of individual and social identity, “reality” itself is rendered somehow incomplete and unfinished.
-
-
-Žižek finds this idea of the incompleteness of reality deeply liberating. In the absence of a complete “reality” the illusion of the self also collapses, since there is nothing definite existing in “outside reality” to help substantiate the coordinates of a self. All that is left is a confrontation with the fiction that lies at the heart of the symbolic order, but which the subject, in an effort to maintain a sense of unified identity, denies.
-<img width="1791" height="4541" alt="image" src="https://github.com/user-attachments/assets/d4df69d3-b77a-4e6f-8095-a5c69f26a7cd" />
