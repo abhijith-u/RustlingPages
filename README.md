@@ -1,6 +1,4 @@
 # RustlingPages
-Backup of https://rustlingpages.substack.com/
-
 
 Welcome to Rustling Pages.
 
