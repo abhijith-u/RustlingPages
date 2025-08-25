@@ -30,10 +30,4 @@
 
 - When it came to isai vellalar musicians, brahmin protectionism kicked in. when an isai vellalar became a maker, there was greater comfort in the interaction. They were not competing for the same space as the brahmin mrdangam artist, but offering a service from a lower rank. Secondly, now the players did not need to associate only with the dalits for their mrdangam work.
 
-- The jacktree's wood is the holy grail of mrdangams. There is a stage before we even get to the leather—and that is selecting and seasoning the wood that forms the shell of the instrument. This is what the asaris traditionally do. The asaris are members of the vishwakarma community. Categorised as OBC (other backward castes) by the government of India, they occupy the lower rungs of the caste order.
-
-
-
-
-Once designers of great temples and monuments, they are now invisible.
-<img width="1791" height="3321" alt="image" src="https://github.com/user-attachments/assets/30d29b80-df0f-4be6-93c5-11314793a9bf" />
+- The jacktree's wood is the holy grail of mrdangams. There is a stage before we even get to the leather—and that is selecting and seasoning the wood that forms the shell of the instrument. This is what the asaris traditionally do. The asaris are members of the vishwakarma community. Categorised as OBC (other backward castes) by the government of India, they occupy the lower rungs of the caste order. Once designers of great temples and monuments, they are now invisible.
