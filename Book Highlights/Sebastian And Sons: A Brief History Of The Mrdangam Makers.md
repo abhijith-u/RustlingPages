@@ -31,3 +31,17 @@
 - When it came to isai vellalar musicians, brahmin protectionism kicked in. when an isai vellalar became a maker, there was greater comfort in the interaction. They were not competing for the same space as the brahmin mrdangam artist, but offering a service from a lower rank. Secondly, now the players did not need to associate only with the dalits for their mrdangam work.
 
 - The jacktree's wood is the holy grail of mrdangams. There is a stage before we even get to the leather—and that is selecting and seasoning the wood that forms the shell of the instrument. This is what the asaris traditionally do. The asaris are members of the vishwakarma community. Categorised as OBC (other backward castes) by the government of India, they occupy the lower rungs of the caste order. Once designers of great temples and monuments, they are now invisible.
+
+
+
+
+
+
+
+
+
+- Buffalo skin makes up two layers used for the toppi, goat skin being the third. When makers need skin, a buffalo is chosen specifically for this purpose from the lot that has made it to the slaughterhouse. Another lie perpetrated by some artists is that only the skin of animals that die naturally is used. In an animal that dies a natural death, the blood clots, and the skin becomes like cardboard, unusable for a maker.
+
+  When it comes to goat skin, they want black goats. There should be spots on the skin, specifically for toppi skin. The hair should be soft on those spots, as that provides better resonance. There is logic in everything
+
+- The toppi is the bass side of the mrdangam and its resonances are in the lower registers.
